@@ -20,15 +20,15 @@
       - f. Don’t share sensitive information with the organization’s enemies. 不要與組織的敵人共享敏感信息。
   - 1.5 Meaningful relationships and meaningful work are mutually reinforcing, especially when supported by radical truth and radical transparency. 有意義的關係和有意義的工作是相輔相成的，特別是在激進的真理和激進的透明度的支持下。
 - 2 Cultivate Meaningful Work and Meaningful Relationships 培育有意義的工作和有意義的關係
-  - 2.1 Be loyal to the common mission and not to anyone who is not operating consistently with it. 忠誠於共同的使命，不要對任何不一致的人服務。
-  - 2.2 Be crystal clear on what the deal is. 關於交易是清楚的。
-    - a. Make sure people give more consideration to others than they demand for themselves. 確保人們比自己要求更多地考慮他人。
+  - 2.1 Be loyal to the common mission and not to anyone who is not operating consistently with it. 忠誠於共同的使命，而不要對其他無法跟共同使命共存的人忠誠。
+  - 2.2 Be crystal clear on what the deal is. 對於所有交易要有清楚透徹的了解。
+    - a. Make sure people give more consideration to others than they demand for themselves. 確保人們考慮到其他人的地方比他對其他人要求的事情還要多。
     - b. Make sure that people understand the difference between fairness and generosity. 確保人們了解公平和慷慨的差異。
-    - c. Know where the line is and be on the far side of fair. 知道線在哪裡，並在公平的遠方。
-    - d. Pay for work. - 付出工作
+    - c. Know where the line is and be on the far side of fair. 知道底線在哪裡，並且是在公平的那一方。
+    - d. Pay for work. - 工作就是要拿報酬
   - 2.3 Recognize that the size of the organization can pose a threat to meaningful relationships. 認知到組織的規模可能對有意義的關係構成威脅。
-  - 2.4 Remember that most people will pretend to operate in your interest while operating in their own. 記住，大多數人會在自己的運作中假裝自己操作。
-  - 2.5 Treasure honorable people who are capable and will treat you well even when you’re not looking. 珍惜有能力的尊貴的人，即使你不看，也會對你很好。
+  - 2.4 Remember that most people will pretend to operate in your interest while operating in their own. 記住，大多數人會在假裝為你的利益著想做一些看似對你好的事情，實際上是在為自己的利益偷偷幹壞事。
+  - 2.5 Treasure honorable people who are capable and will treat you well even when you’re not looking. 珍惜有能力且品德高尚的人，他們會幫助你，即使你看不到。
 - 3 Create a Culture in Which It Is Okay to Make Mistakes and Unacceptable Not to Learn from Them 創造一個文化，它是好的，使錯誤和不接受不從他們學習
   - 3.1 Recognize that mistakes are a natural part of the evolutionary process. 認知到錯誤是進化過程的一個自然部分。
     - a. Fail well. 失敗了
