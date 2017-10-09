@@ -6,134 +6,134 @@
   - 1.2 Truth—or, more precisely, an accurate understanding of reality—is the essential foundation for any good outcome. 真理 - 或者更確切地說，對現實的準確理解 - 是任何好的結果的基礎。
   - 1.3 Be radically open-minded and radically transparent. 從根本上開放，透明。
     - a. Radical open-mindedness and radical transparency are invaluable for rapid learning and effective change.激進的開放思想和激進的透明度對於快速學習和有效的變革是無價的。
-    - b. Don’t let fears of what others think of you stand in your way. 別擔心別人怎麼想你站在你的路上。
+    - b. Don’t let fears of what others think of you stand in your way. 別讓「擔心別人怎麼想」的恐懼阻擋你。
     - c. Embracing radical truth and radical transparency will bring more meaningful work and more meaningful relationships.擁抱激進的真理和激進的透明度將帶來更有意義的工作和更有意義的關係。
   - 1.4 Look to nature to learn how reality works.看到大自然中去了解現實中是如何工作的。
-    - a. Don’t get hung up on your views of how things 「should」 be because you will miss out on learning how they really are. 不要掛掉你對於「應該」是因為你會錯過學習他們真正的東西的看法。
-    - b. To be 「good,」 something must operate consistently with the laws of reality and contribute to the evolution of the whole; that is what is most rewarded. 要「好」，必須一貫遵循現實法則，為整體的演變做出貢獻;那是最有價值的。
-    - c. Evolution is the single greatest force in the universe; it is the only thing that is permanent and it drives everything.進化是宇宙中唯一最偉大的力量;它是唯一的永久性，它驅動一切。
-    - Evolve or die. 進化或死亡
-  - 1.5 Evolving is life’s greatest accomplishment and its greatest reward. 進步是人生最大的成就和最大的回報。
+    - a. Don’t get hung up on your views of how things 「should」 be because you will miss out on learning how they really are. 不要過於糾結事情「應該」如何，因為你會錯過學習它真正樣態的機會。
+    - b. To be 「good,」 something must operate consistently with the laws of reality and contribute to the evolution of the whole; that is what is most rewarded. 要「好」，必須一貫遵循現實法則，為整體的演變做出貢獻;那才會獲得最多回報。
+    - c. Evolution is the single greatest force in the universe; it is the only thing that is permanent and it drives everything.進化是宇宙中唯一最偉大的力量;它是唯一永久不變的，它驅動一切。
+    - Evolve or die. 進化或者被淘汰
+  - 1.5 Evolving is life’s greatest accomplishment and its greatest reward. 進化是人生最大的成就和最大的回報。
     - a. The individual’s incentives must be aligned with the group’s goals. 個人的激勵措施必須符合集團的目標。
     - b. Reality is optimizing for the whole—not for you. 現實是為整體而不是為你而優化。
     - c. Adaptation through rapid trial and error is invaluable. 通過快速的試錯來適應是無價的。
-    - d. Realize that you are simultaneously everything and nothing—and decide what you want to be.意識到你是同時的一切，沒有任何事情 - 並決定你想成為什麼。
-    - e. What you will be will depend on the perspective you have. 即你將會取決於你所擁有的觀點。
-  - 1.6 Understand nature’s practical lessons. 了解大自然的實踐經驗。
+    - d. Realize that you are simultaneously everything and nothing—and decide what you want to be.意識到你自己同時可以什麼都是，也可以什麼都不是 －決定你自己想成為什麼。
+    - e. What you will be will depend on the perspective you have. 你會成為什麼取決於你所擁有的觀點。
+  - 1.6 Understand nature’s practical lessons. 了解大自然的現實。
     - a. Maximize your evolution. 最大化你的進化。
     - b. Remember 「no pain, no gain.」記住「沒有痛苦，沒有收穫」。
-    - c. It is a fundamental law of nature that in order to gain strength one has to push one’s limits, which is painful. 這是一個基本的自然規律，為了獲得實力，必須推動一個極限，這是痛苦的。
+    - c. It is a fundamental law of nature that in order to gain strength one has to push one’s limits, which is painful. 這是一個基本的自然規律，為了獲得生存的力量，一個個體必須將自己逼到極限，這是痛苦的。
   - 1.7 Pain + Reflection = Progress. 痛+反思=進步。
     - a. Go to the pain rather than avoid it. 去痛苦而不是避免。
     - b. Embrace tough love. 擁抱艱難的愛。
-  - 1.8 Weigh second- and third-order consequences. 稱重二和三階後果。
+  - 1.8 Weigh second- and third-order consequences. 衡量第二和三階的結果。
   - 1.9 Own your outcomes. 擁有你的成果。
-  - 1.10 Look at the machine from the higher level. 從上層看機器。
+  - 1.10 Look at the machine from the higher level. 從上帝觀點看自己這台機器。
     - a. Think of yourself as a machine operating within a machine and know that you have the ability to alter your machines to produce better outcomes. 認為自己是在機器內運行的機器，並且知道您有能力改變機器以產生更好的結果。
     - b. By comparing your outcomes with your goals, you can determine how to modify your machine. 通過將結果與您的目標進行比較，您可以確定如何修改機器。
-    - c. Distinguish between you as the designer of your machine and you as a worker with your machine. 區分你作為你的機器的設計師，你作為一個工人與您的機器。
-    - d. The biggest mistake most people make is to not see themselves and others objectively, which leads them to bump into their own and others’ weaknesses again and again. 大多數人最大的錯誤是客觀地看待自己和他人，這導致他們一次又一次地碰到自己和別人的弱點。
+    - c. Distinguish between you as the designer of your machine and you as a worker with your machine. 辨別你作為你的機器的設計師，與你這台機器的操作者。
+    - d. The biggest mistake most people make is to not see themselves and others objectively, which leads them to bump into their own and others’ weaknesses again and again. 大多數人最大的錯誤是無法客觀地看待自己和他人，這導致他們一次又一次地碰到自己和別人的弱點。
     - e. Successful people are those who can go above themselves to see things objectively and manage those things to shape change. 成功的人是那些可以超越自己去客觀看事物，管理這些東西來塑造變革的人。
-    - f. Asking others who are strong in areas where you are weak to help you is a great skill that you should develop no matter what, as it will help you develop guardrails that will prevent you from doing what you shouldn’t be doing.要求在弱者的地方堅強的別人幫助你，這是一個偉大的技能，你應該發展，無論什麼，因為它將幫助你開發護欄，這將阻止你做你不應該做的事情。
-    - g. Because it is difficult to see oneself objectively, you need to rely on the input of others and the whole body of evidence. 因為客觀上很難看到自己，所以你需要依靠他人的意見和整體的證據。
+    - f. Asking others who are strong in areas where you are weak to help you is a great skill that you should develop no matter what, as it will help you develop guardrails that will prevent you from doing what you shouldn’t be doing.在你最不擅長的地方找強者幫忙你，這是一個你無論如何都應該發展的好技能，因為這將幫助你擁有阻止你作不該做的事情的防護罩。
+    - g. Because it is difficult to see oneself objectively, you need to rely on the input of others and the whole body of evidence. 因為客觀上很難看清自己，所以你需要依靠他人的意見和整體的證據。
     - h. If you are open-minded enough and determined, you can get virtually anything you want.如果你有足夠的開放性和決心，那麼你幾乎可以得到任何你想要的東西。
 - 2 Use the 5-Step Process to Get What You Want Out of Life 使用5步過程獲得您想要的生命
   - 2.1 Have clear goals. 2.1有明確的目標。
     - a. Prioritize: While you can have virtually anything you want, you can’t have everything you want.優先級：雖然你幾乎可以擁有任何你想要的東西，但你不能擁有你想要的一切。
     - b. Don’t confuse goals with desires. 不要將目標與慾望混為一談。
     - c. Decide what you really want in life by reconciling your goals and your desires. 通過調和你的目標和慾望來決定你真正想要的生活。
-    - d. Don’t mistake the trappings of success for success itself.不要誤會成功的成功本身。
-    - e. Never rule out a goal because you think it’s unattainable. 不要排除一個目標，因為你認為這是無法實現的。
+    - d. Don’t mistake the trappings of success for success itself.不要誤會成功的外觀與真正的成功本身。
+    - e. Never rule out a goal because you think it’s unattainable. 不要因為你覺得無法實現，就去排除一個目標。
     - f. Remember that great expectations create great capabilities. 記住，偉大的期望創造出巨大的能力\
     - g. Almost nothing can stop you from succeeding if you have a) flexibility and b) self-accountability. 幾乎沒有什麼可以阻止你成功，如果你有a）靈活性和b）自我責任。
     - h. Knowing how to deal well with your setbacks is as important as knowing how to move forward. 了解如何妥善處理您的挫折與知道如何前進一樣重要。
   - 2.2 Identify and don’t tolerate problems. 識別出然後不容忍問題。
-    - a. View painful problems as potential improvements that are screaming at you. 看到痛苦的問題，作為潛在的改進，尖叫著你。
-    - b. Don’t avoid confronting problems because they are rooted in harsh realities that are unpleasant to look at不要避免面對的問題，因為它們植根於不愉快的苛刻現實。
+    - a. View painful problems as potential improvements that are screaming at you. 將痛苦的問題當作是像在你面前大吼大叫的潛在進步機會。
+    - b. Don’t avoid confronting problems because they are rooted in harsh realities that are unpleasant to look at不要避免面對問題，因為它們是基於令人不快的、苛刻的現實。
     - c. Be specific in identifying your problems.具體識別您的問題。
-    - d. Don’t mistake a cause of a problem with the real problem. 不要誤解真正問題的一個問題的原因。
-    - e. Distinguish big problems from small ones.區分小問題。
-    - f. Once you identify a problem, don’t tolerate it. 確定問題後，不要容忍。
+    - d. Don’t mistake a cause of a problem with the real problem. 不要弄錯「造成問題的成因」與「真正的問題」。
+    - e. Distinguish big problems from small ones.由小問題察覺大問題。
+    - f. Once you identify a problem, don’t tolerate it. 一旦確定問題後，不要容忍。
   - 2.3 Diagnose problems to get at their root causes. 診斷問題，找出根本原因。
-    - a. Focus on the 「what is」 before deciding 「what to do about it.」 在決定「如何處理」之前，關注「什麼」。
-    - b. Distinguish proximate causes from root causes. 區分根本原因的最近原因。
-    - c. Recognize that knowing what someone (including you) is like will tell you what you can expect from them.。認知到知道某人（包括你）是什麼樣的人會告訴你你可以期待什麼。
+    - a. Focus on the 「what is」 before deciding 「what to do about it.」 在決定「如何處理」之前，先關注「什麼」。
+    - b. Distinguish proximate causes from root causes. 區分根本原因的最貼近原因。
+    - c. Recognize that knowing what someone (including you) is like will tell you what you can expect from them.。認知到知道某人（包括你）是什麼樣的人，會讓你知道你可以從他們身上期待什麼。
   - 2.4 Design a plan. 設計方案
-    - a. Go back before you go forward. 在你前進之前回去
+    - a. Go back before you go forward. 在你前進之前回頭看看
     - b. Think about your problem as a set of outcomes produced by a machine. 將您的問題視為機器產生的一系列結果。
     - c. Remember that there are typically many paths to achieving your goals. 請記住，通常有許多途徑來實現您的目標。
-    - d. Think of your plan as being like a movie script in that you visualize who will do what through time. 想像你的計劃像一個電影劇本，你可以看出誰會做什麼時間。
-    - e. Write down your plan for everyone to see and to measure your progress against. 即寫下你的計劃，讓大家看到並衡量你的進度。
+    - d. Think of your plan as being like a movie script in that you visualize who will do what through time. 想像你的計劃像一個電影劇本，你可以視覺化的控制誰在什麼時間要做什麼。
+    - e. Write down your plan for everyone to see and to measure your progress against. 寫下你的計劃，讓大家看到並衡量你進度的缺失。
     - f. Recognize that it doesn’t take a lot of time to design a good plan. 認知到設計一個好的計劃不需要很多時間。
-  - 2.5 Push through to completion. 推進完成。
-    - a. Great planners who don’t execute their plans go nowhere. 沒有執行他們的計劃的偉大規劃者無處可去。
+  - 2.5 Push through to completion. 敦促直到完成。
+    - a. Great planners who don’t execute their plans go nowhere. 無法執行計畫的偉大規劃者，還是會一事無成。
     - b. Good work habits are vastly underrated. 良好的工作習慣被大大低估了。
     - c. Establish clear metrics to make certain that you are following your plan. 建立明確的指標，確保您遵循計劃。
-  - 2.6 Remember that weaknesses don’t matter if you find solutions. 請記住，如果你找到解決的弱點並不重要。
-     - a. Look at the patterns of your mistakes and identify at which step in the 5-Step Process you typically fail. 看看你的錯誤的模式，並確定在五步過程中通常失敗的哪一步。
-     - b. Everyone has at least one big thing that stands in the way of their success; find yours and deal with it. 每個人至少有一件大事情阻礙了他們的成功;找到你並處理它。
-  - 2.7 Understand your own and others’ mental maps and humility. 了解自己和他人的精神地圖和謙卑。
+  - 2.6 Remember that weaknesses don’t matter if you find solutions. 請記住，如果你已找到解決的方法的話，那弱點並不重要。
+     - a. Look at the patterns of your mistakes and identify at which step in the 5-Step Process you typically fail. 看看你的錯誤的模式，並確定在五步過程中通常失敗在哪一步。
+     - b. Everyone has at least one big thing that stands in the way of their success; find yours and deal with it. 每個人至少有一件最大的問題阻礙了他們的成功;找到你自己的並處理它。
+  - 2.7 Understand your own and others’ mental maps and humility. 了解自己和他人的精神地圖並謙卑。
 - 3 Be Radically Open-Minded 從根本上開明
   - 3.1 Recognize your two barriers.認清你的兩個障礙。
     - a. Understand your ego barrier. 了解你的自我障礙
-    - b. Your two 「yous」 fight to control you. 你的兩個「ous」戰鬥來控制你。
-    - c. Understand your blind spot barrier. 了解你的盲點屏障。
+    - b. Your two 「yous」 fight to control you. 你的兩個「你」戰鬥來控制你。
+    - c. Understand your blind spot barrier. 了解你的障礙盲點。
   - 3.2 Practice radical open-mindedness.實踐激進開放的態度。
-    - a. Sincerely believe that you might not know the best possible path and recognize that your ability to deal well with 「not knowing」 is more important than whatever it is you do know. 真誠地相信，您可能不會知道最好的途徑，並認知到您的能力與「不知道」相比，比您所知道的更重要。
+    - a. Sincerely believe that you might not know the best possible path and recognize that your ability to deal well with 「not knowing」 is more important than whatever it is you do know. 真誠地相信，您可能不會知道最好的途徑，並認知到您的去面對「未知的事物」的能力，比起你對抗任何已知事物的能力更重要。
     - b. Recognize that decision making is a two-step process: First take in all the relevant information, then decide. 認知到決策是一個兩步的過程：首先考慮所有相關信息，然後決定。
-    - c. Don’t worry about looking good; worry about achieving your goal. 不用擔心看好擔心實現你的目標。
-    - d. Realize that you can’t put out without taking in. 意識到你不能在沒有入場的情況下熄滅。
-    - e. Recognize that to gain the perspective that comes from seeing things through another’s eyes, you must suspend judgment for a time—only by empathizing can you properly evaluate another point of view. 認知到，為了獲得從另一個人眼中看到事物的觀點，你必須暫停判斷一次，只有通過同情才能正確評估另一個觀點。
-    - f. Remember that you’re looking for the best answer, not simply the best answer that you can come up with yourself. 記住，你正在尋找最好的答案，而不是簡單的最好的答案，你可以想出自己。
-    - g. Be clear on whether you are arguing or seeking to understand, and think about which is most appropriate based on your and others’ believability. 明確您是否在爭論或尋求理解，並根據您和他人的信仰來思考哪個是最合適的。
-  - 3.3  Appreciate the art of thoughtful disagreement. 欣賞周到分歧的藝術。
-  - 3.4 Triangulate your view with believable people who are willing to disagree. 與願意不同意的可信的人三角勾劃你的觀點
+    - c. Don’t worry about looking good; worry about achieving your goal. 別去擔心外在（看起來成功），擔心實現你的目標。
+    - d. Realize that you can’t put out without taking in. 意識到沒有犧牲何來收穫。
+    - e. Recognize that to gain the perspective that comes from seeing things through another’s eyes, you must suspend judgment for a time—only by empathizing can you properly evaluate another point of view. 認知到，為了獲得從另一個人眼中看到事物的觀點，你當下必須暫停判斷，只有通過同理心才能正確評估另一個觀點。
+    - f. Remember that you’re looking for the best answer, not simply the best answer that you can come up with yourself. 記住，你正在尋找最好的答案，而不是只是你想得出來的最好的答案。
+    - g. Be clear on whether you are arguing or seeking to understand, and think about which is most appropriate based on your and others’ believability. 弄清楚到底是在爭論或尋求理解，並思考基於你或他人的可信度，何種才最適當。
+  - 3.3  Appreciate the art of thoughtful disagreement. 珍視（徹底思辨過）歧見的藝術。
+  - 3.4 Triangulate your view with believable people who are willing to disagree. 與不同意你的觀點且可信的人三角勾劃你的觀點
     - a. Plan for the worst-case scenario to make it as good as possible. 計劃最壞的情況使其盡可能好。
-  - 3.5 Recognize the signs of closed-mindedness and open-mindedness that you should watch out for. 認知到你應該注意的心態和開放心態的跡象。
-  - 3.6 Understand how you can become radically open-minded. 了解你如何能夠開明頭腦。
-    - a. Regularly use pain as your guide toward quality reflection. 定期使用疼痛作為質量反思的指導。
-    - b. Make being open-minded a habit. 做一個開放的習慣。
+  - 3.5 Recognize the signs of closed-mindedness and open-mindedness that you should watch out for. 認知到你應該注意的封閉心態和開放心態的跡象。
+  - 3.6 Understand how you can become radically open-minded. 了解你如何能夠開放心態。
+    - a. Regularly use pain as your guide toward quality reflection. 定期使用痛苦作為一種高品質反思的嚮導。
+    - b. Make being open-minded a habit. 把開放心態當成一種習慣。
     - c. Get to know your blind spots. 了解你的盲點。
-    - d. If a number of different believable people say you are doing something wrong and you are the only one who doesn’t see it that way, assume that you are probably biased. 如果一些不同的可信的人說你在做錯事，你是唯一一個不這樣看待的人，假設你有偏見。
-    - e. Meditate. 幽思。
-    - f. Be evidence-based and encourage others to be the same. 以證據為基礎，鼓勵他人相同。
-    - g. Do everything in your power to help others also be open-minded. 做你一切權力，幫助別人也是開明的。
+    - d. If a number of different believable people say you are doing something wrong and you are the only one who doesn’t see it that way, assume that you are probably biased. 如果一些不同但可信的人都說你在做錯事，而你是唯一一個不這樣看待的人，假設你非常可能有偏見。
+    - e. Meditate. 冥想。
+    - f. Be evidence-based and encourage others to be the same. 以證據為基礎，也鼓勵他人以證據為基礎。
+    - g. Do everything in your power to help others also be open-minded. 盡你一切能力幫助別人也能開放心態。
     - h. Use evidence-based decision-making tools. 使用循證決策工具。
-    - i. Know when it’s best to stop fighting and have faith in your decision-making process. 知道什麼時候最好停止戰鬥，並相信你的決策過程。
-- 4 Understand That People Are Wired Very Differently - 了解人們有很大的區別
-  - 4.1 Understand the power that comes from knowing how you and others are wired. 了解來自知道你和他人是如何联系的力量。
-    - a. We are born with attributes that can both help us and hurt us, depending on their application.我們出生的屬性可以幫助我們並傷害我們，這取決於他們的應用。
+    - i. Know when it’s best to stop fighting and have faith in your decision-making process. 知道什麼時候最好停止爭論，並相信你的決策過程。
+- 4 Understand That People Are Wired Very Differently - 了解每個人與其他人的相互連結非常不同
+  - 4.1 Understand the power that comes from knowing how you and others are wired. 了解「理解你和他人是如何相互連結」的力量。
+    - a. We are born with attributes that can both help us and hurt us, depending on their application.我們與生俱來的各種特質可以同時幫助我們，並讓我們受傷，這取決於如何應用。
   - 4.2 Meaningful work and meaningful relationships aren’t just nice things we chose for ourselves—they are genetically programmed into us. 有意義的工作和有意義的關係不僅僅是我們為自己選擇的好東西 - 他們是基因編程的。
-  - 4.3 Understand the great brain battles and how to control them to get what 「you」 want. 了解偉大的大腦戰鬥以及如何控制他們獲得「你」的想法。
+  - 4.3 Understand the great brain battles and how to control them to get what 「you」 want. 了解腦中大戰以及如何控制他們獲得「你」想要的。
     - a. Realize that the conscious mind is in a battle with the subconscious mind.意識到有意識的心靈正在與潛意識的鬥爭中。
     - b. Know that the most constant struggle is between feeling and thinking.知道最不平凡的鬥爭是在感覺和思考之間。
     - c. Reconcile your feelings and your thinking. 調和你的感受和思考。
-    - d. Choose your habits well. 選擇你的習慣。
-    - e. Train your 「lower-level you」 with kindness and persistence to build the right habits. 即培養你的「低級別」，以善良和堅持，建立正確的習慣。
+    - d. Choose your habits well. 選好你的習慣。
+    - e. Train your 「lower-level you」 with kindness and persistence to build the right habits. 培養「低階層的自己」，以善良和堅持，建立正確的習慣。
     - f. Understand the differences between right-brained and left-brained thinking. 了解右腦和左腦思維之間的差異。
-    - g. Understand how much the brain can and cannot change. 了解大腦可以和不能改變多少。
+    - g. Understand how much the brain can and cannot change. 了解大腦多大幅度的「可以和不能改變」的狀況。
   - 4.4 Find out what you and others are like. 找出你和他人的樣子。
     - a. Introversion vs. extroversion. 內向與外向
     - b. Intuiting vs. sensing. 直覺與感覺
     - c. Thinking vs. feeling. 思考與感覺
     - d. Planning vs. perceiving. 規劃與感知
-    - e. Creators vs. refiners vs. advancers vs. executors vs. flexors. 即創作者與煉乳者相比，推薦者與執行者與屈肌無關。
+    - e. Creators vs. refiners vs. advancers vs. executors vs. flexors. 創造者 vs.精鍊者 vs.進階者 vs.執行者 vs.妥協者（？）。
     - f. Focusing on tasks vs. focusing on goals. 重點關注任務，重點關注目標。
     - g. Workplace Personality Inventory. 工作場所人格庫存。
     - h. Shapers are people who can go from visualization to actualization. 造型師是可以從可視化到實現的人。
-  - 4.5 Getting the right people in the right roles in support of your goal is the key to succeeding at whatever you choose to accomplish. 讓正確的人員在正確的角色支持你的目標是成功的關鍵，無論你選擇完成。
+  - 4.5 Getting the right people in the right roles in support of your goal is the key to succeeding at whatever you choose to accomplish. 讓正確的人員在正確的角色支援你的工作是成功的關鍵，無論你的目標是想完成什麼。
     - a. Manage yourself and orchestrate others to get what you want. 管理自己並協調他人，以獲得您想要的。
 - 5 Learn How to Make Decisions Effectively 了解如何有效地做出決定
   - 5.1 Recognize that 1) the biggest threat to good decision making is harmful emotions, and 2) decision making is a two-step process (first learning and then deciding). 5.1認知到1）決策制定的最大威脅是有害的情緒，2）決策是一個兩步的過程（首先學習然後決定）。
   - 5.2 Synthesize the situation at hand. 綜合現狀。
-    - a. One of the most important decisions you can make is who you ask questions of. 你可以做出的最重要的決定之一是誰提出問題。
-    - b. Don’t believe everything you hear. 不要相信你聽到的一切。
-    - c. Everything looks bigger up close. 一切看起來都比較大。
+    - a. One of the most important decisions you can make is who you ask questions of. 你可以做出的最重要的決定之一是向誰問問題。
+    - b. Don’t believe everything you hear. 不要全盤相信你聽到的。
+    - c. Everything looks bigger up close. 越接近的東西，看起來都會變大。
     - d. New is overvalued relative to great. 新的相對於偉大而被高估。
-    - e. Don’t oversqueeze dots. 即不要擠壓點。
-  - 5.3 Synthesize the situation through time. 通過時間合成情況。
+    - e. Don’t oversqueeze dots. 不要過於壓榨一點。
+  - 5.3 Synthesize the situation through time. 透過時間合成各種情勢。
     - a. Keep in mind both the rates of change and the levels of things, and the relationships between them.記住變化的速度和事物的水平，以及它們之間的關係。
-    - b. Be imprecise. 不准確
+    - b. Be imprecise. 不要太要求精確
     - c. Remember the 80/20 Rule and know what the key 20 percent is. 記住80/20規則，知道20％的關鍵。
     - d. Be an imperfectionist. 成為一個不完美主義者
   - 5.4 Navigate levels effectively. 有效地瀏覽級別
@@ -142,14 +142,14 @@
   - 5.5 Logic, reason, and common sense are your best tools for synthesizing reality and understanding what to do about it. 邏輯，理由和常識是您合成現實的最佳工具，並了解該做什麼。
   - 5.6 Make your decisions as expected value calculations. 作出預期的價值計算。
     - a. Raising the probability of being right is valuable no matter what your probability of being right already is. 提高正確的概率是有價值的，不管你是否已經是正確的概率。
-    - b. Knowing when not to bet is as important as knowing what bets are probably worth making. 知道什麼時候不打賭與知道什麼賭注可能值得一樣重要。
+    - b. Knowing when not to bet is as important as knowing what bets are probably worth making. 知道什麼時候不下注，與知道什麼時候賭一把可能一樣重要。
     - c. The best choices are the ones that have more pros than cons, not those that don’t have any cons at all.最好的選擇是比缺點更多的優點，而不是沒有任何缺點的選擇。
-  - 5.7 Prioritize by weighing the value of additional information against the cost of not deciding. 通過衡量附加信息的價值與不決定的成本進行優先排序。
-    - a. All of your 「must-dos」 must be above the bar before you do your 「like-to-dos.」所有的「必須」都必須在您的「待辦事項」之前，必須位於酒吧之上。
-    - b. Chances are you won’t have time to deal with the unimportant things, which is better than not having time to deal with the important things. 有機會你沒有時間處理不重要的事情，這比沒有時間處理重要的事情更好。
-    - c. Don’t mistake possibilities for probabilities. 不要錯誤概率的可能性。
+  - 5.7 Prioritize by weighing the value of additional information against the cost of not deciding. 透過「衡量附加信息的價值」與「不做決定的成本」進行優先排序。
+    - a. All of your 「must-dos」 must be above the bar before you do your 「like-to-dos.」所有的「必辦事項」都必須在您的「想做的事」之前
+    - b. Chances are you won’t have time to deal with the unimportant things, which is better than not having time to deal with the important things. 機會是「你沒有時間處理不重要的事情」，這比「沒有時間處理重要的事情」更好。
+    - c. Don’t mistake possibilities for probabilities. 不要搞錯「有可能發生」跟「很可能發生」。
   - 5.8 Simplify! 簡化！
   - 5.9 Use principles. 使用原則。
-  - 5.10 Believability weight your decision making. 可信度重視您的決策。
-  - 5.11 Convert your principles into algorithms and have the computer make decisions alongside you. 將您的原理轉換為算法，讓計算機與您一起做出決策。
+  - 5.10 Believability weight your decision making. 可信度加重你的決策。
+  - 5.11 Convert your principles into algorithms and have the computer make decisions alongside you. 將您的原理轉換為演算法，讓電腦與您一起做出決策。
   - 5.12 Be cautious about trusting AI without having deep understanding. 對於信任AI而不深刻的理解，要小心謹慎。
