@@ -3,20 +3,20 @@
 ## TO GET THE CULTURE RIGHT . . .讓文化正確
 
 - 1 Trust in Radical Truth and Radical Transparency　信仰激進的真相和激進的透明度
-  - 1.1 Realize that you have nothing to fear from knowing the truth. 要知道，你沒有什麼可從知道真相害怕。
-  - 1.2 Have integrity and demand it from others. 誠實守信，要求別人。
-    - a. Never say anything about someone that you wouldn’t say to them directly and don’t try people without accusing them to their faces. 不要對任何一個不會直接對他們說話的人說話，也不要在沒有指責他們的臉上嘗試人。
-    - b. Don’t let loyalty to people stand in the way of truth and the well-being of the organization. 不要讓對人們的忠誠與組織的真理和福祉息息相關。
+  - 1.1 Realize that you have nothing to fear from knowing the truth. 要知道，知道真相並沒有什麼好害怕的。
+  - 1.2 Have integrity and demand it from others. 要當一個正直的人，然後也要求其他人也當一個正直的人。
+    - a. Never say anything about someone that you wouldn’t say to them directly and don’t try people without accusing them to their faces. 永遠不要對你不會直接接觸的人說任何事情，也不要隔空指責他人。
+    - b. Don’t let loyalty to people stand in the way of truth and the well-being of the organization. 不要讓人的忠誠阻擋到真相與組織的福祉。
   - 1.3 Create an environment in which everyone has the right to understand what makes sense and no one has the right to hold a critical opinion without speaking up. 創造一個環境，​​讓每個人都有了解什麼是有意義的權利，沒有人有權在不說話的情況下持有批判意見。
-    - a. Speak up, own it, or get out. 說出來，擁有它，或者走出去。
-    - b. Be extremely open. 非常開放
-    - c. Don’t be naive about dishonesty. 不要天真的不誠實。
+    - a. Speak up, own it, or get out. 說出來，擁有它，或者離開。
+    - b. Be extremely open. 對於所有事物要維持超級開放的態度
+    - c. Don’t be naive about dishonesty. 不要對任何不誠實的事情有太過天真的想法。
   - 1.4 Be radically transparent. 徹底透明
       - a. Use transparency to help enforce justice. 使用透明度來幫助執法。
       - b. Share the things that are hardest to share. 分享最難分享的東西。
       - c. Keep exceptions to radical transparency very rare. 保持激進透明度的例外非常罕見。
       - d. Make sure those who are given radical transparency recognize their responsibilities to handle it well and to weigh things intelligently. 確保那些有激進的透明度的人認知到他們有責任處理好事情，巧妙地衡量事物。
-      - e. Provide transparency to people who handle it well and either deny it to people who don’t handle it well or remove those people from the organization. 即為處理好的人提供透明度，不要對不善於處理的人或將其從組織中移除。
+      - e. Provide transparency to people who handle it well and either deny it to people who don’t handle it well or remove those people from the organization. 即為處理好的人提供透明度，否定那些不善於處理激進透明度的人或將其從組織中移除。
       - f. Don’t share sensitive information with the organization’s enemies. 不要與組織的敵人共享敏感信息。
   - 1.5 Meaningful relationships and meaningful work are mutually reinforcing, especially when supported by radical truth and radical transparency. 有意義的關係和有意義的工作是相輔相成的，特別是在激進的真理和激進的透明度的支持下。
 - 2 Cultivate Meaningful Work and Meaningful Relationships 培育有意義的工作和有意義的關係
