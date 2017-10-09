@@ -15,26 +15,26 @@
       - a. Use transparency to help enforce justice. 使用透明度來幫助執法。
       - b. Share the things that are hardest to share. 分享最難分享的東西。
       - c. Keep exceptions to radical transparency very rare. 保持激進透明度的例外非常罕見。
-      d. Make sure those who are given radical transparency recognize their responsibilities to handle it well and to weigh things intelligently. 確保那些有激進的透明度的人認知到他們有責任處理好事情，巧妙地衡量事物。
-      e. Provide transparency to people who handle it well and either deny it to people who don’t handle it well or remove those people from the organization. 即為處理好的人提供透明度，不要對不善於處理的人或將其從組織中移除。
+      - d. Make sure those who are given radical transparency recognize their responsibilities to handle it well and to weigh things intelligently. 確保那些有激進的透明度的人認知到他們有責任處理好事情，巧妙地衡量事物。
+      - e. Provide transparency to people who handle it well and either deny it to people who don’t handle it well or remove those people from the organization. 即為處理好的人提供透明度，不要對不善於處理的人或將其從組織中移除。
       - f. Don’t share sensitive information with the organization’s enemies. 不要與組織的敵人共享敏感信息。
   - 1.5 Meaningful relationships and meaningful work are mutually reinforcing, especially when supported by radical truth and radical transparency. 有意義的關係和有意義的工作是相輔相成的，特別是在激進的真理和激進的透明度的支持下。
 - 2 Cultivate Meaningful Work and Meaningful Relationships 培育有意義的工作和有意義的關係
   - 2.1 Be loyal to the common mission and not to anyone who is not operating consistently with it. 忠誠於共同的使命，不要對任何不一致的人服務。
   - 2.2 Be crystal clear on what the deal is. 關於交易是清楚的。
     - a. Make sure people give more consideration to others than they demand for themselves. 確保人們比自己要求更多地考慮他人。
-    b. Make sure that people understand the difference between fairness and generosity. 確保人們了解公平和慷慨的差異。
-    c. Know where the line is and be on the far side of fair. 知道線在哪裡，並在公平的遠方。
-    d. Pay for work. - 付出工作
+    - b. Make sure that people understand the difference between fairness and generosity. 確保人們了解公平和慷慨的差異。
+    - c. Know where the line is and be on the far side of fair. 知道線在哪裡，並在公平的遠方。
+    - d. Pay for work. - 付出工作
   - 2.3 Recognize that the size of the organization can pose a threat to meaningful relationships. 認知到組織的規模可能對有意義的關係構成威脅。
   - 2.4 Remember that most people will pretend to operate in your interest while operating in their own. 記住，大多數人會在自己的運作中假裝自己操作。
   - 2.5 Treasure honorable people who are capable and will treat you well even when you’re not looking. 珍惜有能力的尊貴的人，即使你不看，也會對你很好。
 - 3 Create a Culture in Which It Is Okay to Make Mistakes and Unacceptable Not to Learn from Them 創造一個文化，它是好的，使錯誤和不接受不從他們學習
   - 3.1 Recognize that mistakes are a natural part of the evolutionary process. 認知到錯誤是進化過程的一個自然部分。
-    a. Fail well. 失敗了
-    b. Don’t feel bad about your mistakes or those of others. Love them! 不要對你的錯誤或別人的錯誤感到不舒服愛他們！
+    - a. Fail well. 失敗了
+    - b. Don’t feel bad about your mistakes or those of others. Love them! 不要對你的錯誤或別人的錯誤感到不舒服愛他們！
   - 3.2 Don’t worry about looking good—worry about achieving your goals. 不要擔心實現目標的好心情。
-    a. Get over 「blame」 and 「credit」 and get on with 「accurate」 and 「inaccurate.」 超越「責備」和「信用」，並且「準確」和「不准確」。
+    - a. Get over 「blame」 and 「credit」 and get on with 「accurate」 and 「inaccurate.」 超越「責備」和「信用」，並且「準確」和「不准確」。
   - 3.3 Observe the patterns of mistakes to see if they are products of weaknesses. 觀察錯誤的模式，看看它們是否是弱點的產物。
   - 3.4 Remember to reflect when you experience pain. 請記住，以反映當你感到疼痛。
     - a. Be self-reflective and make sure your people are self-reflective. 自我反思，確保你的人自我反思。
