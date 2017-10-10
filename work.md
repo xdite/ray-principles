@@ -29,17 +29,17 @@
   - 2.3 Recognize that the size of the organization can pose a threat to meaningful relationships. 認知到組織的規模可能對有意義的關係構成威脅。
   - 2.4 Remember that most people will pretend to operate in your interest while operating in their own. 記住，大多數人會在假裝為你的利益著想做一些看似對你好的事情，實際上是在為自己的利益偷偷幹壞事。
   - 2.5 Treasure honorable people who are capable and will treat you well even when you’re not looking. 珍惜有能力且品德高尚的人，他們會幫助你，即使你看不到。
-- 3 Create a Culture in Which It Is Okay to Make Mistakes and Unacceptable Not to Learn from Them 創造一個文化，它是好的，使錯誤和不接受不從他們學習
-  - 3.1 Recognize that mistakes are a natural part of the evolutionary process. 認知到錯誤是進化過程的一個自然部分。
-    - a. Fail well. 失敗了
-    - b. Don’t feel bad about your mistakes or those of others. Love them! 不要對你的錯誤或別人的錯誤感到不舒服愛他們！
-  - 3.2 Don’t worry about looking good—worry about achieving your goals. 不要擔心實現目標的好心情。
-    - a. Get over 「blame」 and 「credit」 and get on with 「accurate」 and 「inaccurate.」 超越「責備」和「信用」，並且「準確」和「不准確」。
+- 3 Create a Culture in Which It Is Okay to Make Mistakes and Unacceptable Not to Learn from Them 創造一個允許且一定要從犯錯中學習的文化
+  - 3.1 Recognize that mistakes are a natural part of the evolutionary process. 認知到犯錯是進化的必經過程。
+    - a. Fail well. 好好的失敗
+    - b. Don’t feel bad about your mistakes or those of others. Love them! 不要對你的錯誤或別人的錯誤感到難過，你要好好愛錯誤
+  - 3.2 Don’t worry about looking good—worry about achieving your goals. 不用擔心外人看自己的眼光，如何達到自己的目標才是需要擔心的。
+    - a. Get over 「blame」 and 「credit」 and get on with 「accurate」 and 「inaccurate.」 不用去想要「怪別人，或是歸功給誰」，去思考「準確」和「不准確」。
   - 3.3 Observe the patterns of mistakes to see if they are products of weaknesses. 觀察錯誤的模式，看看它們是否是弱點的產物。
-  - 3.4 Remember to reflect when you experience pain. 請記住，以反映當你感到疼痛。
-    - a. Be self-reflective and make sure your people are self-reflective. 自我反思，確保你的人自我反思。
+  - 3.4 Remember to reflect when you experience pain. 請記住，當經歷痛苦時，一定要有所反應。
+    - a. Be self-reflective and make sure your people are self-reflective. 自我反思，確保你的人也能夠自我反思。
     - b. Know that nobody can see themselves objectively. 知道沒有人可以客觀地看待自己。
-    - c. Teach and reinforce the merits of mistake-based learning. 教導和強化錯誤學習的優點。
+    - c. Teach and reinforce the merits of mistake-based learning. 教導和強化錯誤導向學習的優點。
   - 3.5 Know what types of mistakes are acceptable and what types are unacceptable, and don’t allow the people who work for you to make the unacceptable ones. 知道什麼類型的錯誤是可以接受的，哪些類型是不可接受的，不允許為你工作的人做出不可接受的錯誤。
 - 4 Get and Stay in Sync 獲取並保持同步
   - 4.1 Recognize that conflicts are essential for great relationships because they are how people determine whether their principles are aligned and resolve their differences. 認知到衝突對於偉大的關係至關重要，因為他們是人們如何確定他們的原則是否一致並解決他們的分歧。
