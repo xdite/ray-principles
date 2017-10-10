@@ -8,18 +8,18 @@
     - a. Radical open-mindedness and radical transparency are invaluable for rapid learning and effective change.激進的開放思想和激進的透明度對於快速學習和有效的變革是無價的。
     - b. Don’t let fears of what others think of you stand in your way. 別讓「擔心別人怎麼想」的恐懼阻擋你。
     - c. Embracing radical truth and radical transparency will bring more meaningful work and more meaningful relationships.擁抱激進的真理和激進的透明度將帶來更有意義的工作和更有意義的關係。
-  - 1.4 Look to nature to learn how reality works.看到大自然中去了解現實中是如何工作的。
+  - 1.4 Look to nature to learn how reality works.從大自然中去了解現實中是如何工作的。
     - a. Don’t get hung up on your views of how things 「should」 be because you will miss out on learning how they really are. 不要過於糾結事情「應該」如何，因為你會錯過學習它真正樣態的機會。
-    - b. To be 「good,」 something must operate consistently with the laws of reality and contribute to the evolution of the whole; that is what is most rewarded. 要「好」，必須一貫遵循現實法則，為整體的演變做出貢獻;那才會獲得最多回報。
+    - b. To be 「good,」 something must operate consistently with the laws of reality and contribute to the evolution of the whole; that is what is most rewarded. 要「好」，必須一貫遵循現實法則，為整體的進化演變做出貢獻;那才會獲得最多回報。
     - c. Evolution is the single greatest force in the universe; it is the only thing that is permanent and it drives everything.進化是宇宙中唯一最偉大的力量;它是唯一永久不變的，它驅動一切。
     - Evolve or die. 進化或者被淘汰
   - 1.5 Evolving is life’s greatest accomplishment and its greatest reward. 進化是人生最大的成就和最大的回報。
     - a. The individual’s incentives must be aligned with the group’s goals. 個人的激勵措施必須符合集團的目標。
-    - b. Reality is optimizing for the whole—not for you. 現實是為整體而不是為你而優化。
+    - b. Reality is optimizing for the whole—not for you. 現實是為整體優化，不是為你。
     - c. Adaptation through rapid trial and error is invaluable. 通過快速的試錯來適應是無價的。
     - d. Realize that you are simultaneously everything and nothing—and decide what you want to be.意識到你自己同時可以什麼都是，也可以什麼都不是 －決定你自己想成為什麼。
     - e. What you will be will depend on the perspective you have. 你會成為什麼取決於你所擁有的觀點。
-  - 1.6 Understand nature’s practical lessons. 了解大自然的現實。
+  - 1.6 Understand nature’s practical lessons. 了解大自然中實際的教訓。
     - a. Maximize your evolution. 最大化你的進化。
     - b. Remember 「no pain, no gain.」記住「沒有痛苦，沒有收穫」。
     - c. It is a fundamental law of nature that in order to gain strength one has to push one’s limits, which is painful. 這是一個基本的自然規律，為了獲得生存的力量，一個個體必須將自己逼到極限，這是痛苦的。
