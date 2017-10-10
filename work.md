@@ -31,7 +31,7 @@
   - 2.5 Treasure honorable people who are capable and will treat you well even when you’re not looking. 珍惜有能力且品德高尚的人，他們會幫助你，即使你看不到。
 - 3 Create a Culture in Which It Is Okay to Make Mistakes and Unacceptable Not to Learn from Them 創造一個允許且一定要從犯錯中學習的文化
   - 3.1 Recognize that mistakes are a natural part of the evolutionary process. 認知到犯錯是進化的必經過程。
-    - a. Fail well. 好好的失敗
+    - a. Fail well. 勇敢去試錯
     - b. Don’t feel bad about your mistakes or those of others. Love them! 不要對你的錯誤或別人的錯誤感到難過，你要好好愛錯誤
   - 3.2 Don’t worry about looking good—worry about achieving your goals. 不用擔心外人看自己的眼光，如何達到自己的目標才是需要擔心的。
     - a. Get over 「blame」 and 「credit」 and get on with 「accurate」 and 「inaccurate.」 不用去想要「怪別人，或是歸功給誰」，去思考「準確」和「不准確」。
