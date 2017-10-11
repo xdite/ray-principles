@@ -22,19 +22,19 @@
   - 1.6 Understand nature’s practical lessons. 了解大自然中實際的教訓。
     - a. Maximize your evolution. 最大化你的進化。
     - b. Remember 「no pain, no gain.」記住「沒有痛苦，沒有收穫」。
-    - c. It is a fundamental law of nature that in order to gain strength one has to push one’s limits, which is painful. 這是一個基本的自然規律，為了獲得生存的力量，一個個體必須將自己逼到極限，這是痛苦的。
+    - c. It is a fundamental law of nature that in order to gain strength one has to push one’s limits, which is painful. 這是一個基本的自然規律，為了獲得生存的力量，人必須將自己逼到極限，這是痛苦的。
   - 1.7 Pain + Reflection = Progress. 痛+反思=進步。
-    - a. Go to the pain rather than avoid it. 去痛苦而不是避免。
-    - b. Embrace tough love. 擁抱艱難的愛。
+    - a. Go to the pain rather than avoid it. 迎向痛苦而不是逃避它。
+    - b. Embrace tough love. 擁抱嚴厲的愛。
   - 1.8 Weigh second- and third-order consequences. 衡量第二和三階的結果。
-  - 1.9 Own your outcomes. 擁有你的成果。
+  - 1.9 Own your outcomes. 為你的成果負責。
   - 1.10 Look at the machine from the higher level. 從上帝觀點看自己這台機器。
-    - a. Think of yourself as a machine operating within a machine and know that you have the ability to alter your machines to produce better outcomes. 認為自己是在機器內運行的機器，並且知道您有能力改變機器以產生更好的結果。
-    - b. By comparing your outcomes with your goals, you can determine how to modify your machine. 通過將結果與您的目標進行比較，您可以確定如何修改機器。
-    - c. Distinguish between you as the designer of your machine and you as a worker with your machine. 辨別你作為你的機器的設計師，與你這台機器的操作者。
+    - a. Think of yourself as a machine operating within a machine and know that you have the ability to alter your machines to produce better outcomes. 把自己當成是在機器內運行的機器，並且知道你有能力改變機器以產生更好的結果。
+    - b. By comparing your outcomes with your goals, you can determine how to modify your machine. 通過比較結果與目標，你可以確定如何修改機器。
+    - c. Distinguish between you as the designer of your machine and you as a worker with your machine. 辨別你作為『你』這台的機器的設計師，和操作者的身份。
     - d. The biggest mistake most people make is to not see themselves and others objectively, which leads them to bump into their own and others’ weaknesses again and again. 大多數人最大的錯誤是無法客觀地看待自己和他人，這導致他們一次又一次地碰到自己和別人的弱點。
-    - e. Successful people are those who can go above themselves to see things objectively and manage those things to shape change. 成功的人是那些可以超越自己去客觀看事物，管理這些東西來塑造變革的人。
-    - f. Asking others who are strong in areas where you are weak to help you is a great skill that you should develop no matter what, as it will help you develop guardrails that will prevent you from doing what you shouldn’t be doing.在你最不擅長的地方找強者幫忙你，這是一個你無論如何都應該發展的好技能，因為這將幫助你擁有阻止你作不該做的事情的防護罩。
+    - e. Successful people are those who can go above themselves to see things objectively and manage those things to shape change. 成功的人是那些可以超越自己去客觀地看，管理事物，來塑造改變。
+    - f. Asking others who are strong in areas where you are weak to help you is a great skill that you should develop no matter what, as it will help you develop guardrails that will prevent you from doing what you shouldn’t be doing.在你最不擅長的地方找強者幫忙你，是一個你無論如何都應該發展的好技能。這將保護你不去做你不該做的事情。
     - g. Because it is difficult to see oneself objectively, you need to rely on the input of others and the whole body of evidence. 因為客觀上很難看清自己，所以你需要依靠他人的意見和整體的證據。
     - h. If you are open-minded enough and determined, you can get virtually anything you want.如果你有足夠的開放性和決心，那麼你幾乎可以得到任何你想要的東西。
 - 2 Use the 5-Step Process to Get What You Want Out of Life 使用5步過程獲得您想要的生命
