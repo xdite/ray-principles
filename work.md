@@ -7,143 +7,143 @@
   - 1.2 Have integrity and demand it from others. 要當一個正直的人，然後也要求其他人也當一個正直的人。
     - a. Never say anything about someone that you wouldn’t say to them directly and don’t try people without accusing them to their faces. 永遠不要對你不會直接接觸的人說任何事情，也不要隔空指責他人。
     - b. Don’t let loyalty to people stand in the way of truth and the well-being of the organization. 不要讓人的忠誠阻擋到真相與組織的福祉。
-  - 1.3 Create an environment in which everyone has the right to understand what makes sense and no one has the right to hold a critical opinion without speaking up. 創造一個環境，​​讓每個人都有了解什麼是有意義的權利，沒有人有權在不說話的情況下持有批判意見。
+  - 1.3 Create an environment in which everyone has the right to understand what makes sense and no one has the right to hold a critical opinion without speaking up. 創造一個環境，讓每個人都有知曉意義的權利，讓任何人都可以將他的批判表達出來而不被壓抑。
     - a. Speak up, own it, or get out. 說出來，擁有它，或者離開。
     - b. Be extremely open. 對於所有事物要維持超級開放的態度
     - c. Don’t be naive about dishonesty. 不要對任何不誠實的事情有太過天真的想法。
   - 1.4 Be radically transparent. 徹底透明
-      - a. Use transparency to help enforce justice. 使用透明度來幫助執法。
-      - b. Share the things that are hardest to share. 分享最難分享的東西。
-      - c. Keep exceptions to radical transparency very rare. 保持激進透明度的例外非常罕見。
-      - d. Make sure those who are given radical transparency recognize their responsibilities to handle it well and to weigh things intelligently. 確保那些有激進的透明度的人認知到他們有責任處理好事情，巧妙地衡量事物。
-      - e. Provide transparency to people who handle it well and either deny it to people who don’t handle it well or remove those people from the organization. 即為處理好的人提供透明度，否定那些不善於處理激進透明度的人或將其從組織中移除。
-      - f. Don’t share sensitive information with the organization’s enemies. 不要與組織的敵人共享敏感信息。
+    - a. Use transparency to help enforce justice. 使用透明度來幫助執法。
+    - b. Share the things that are hardest to share. 分享最難分享的東西。
+    - c. Keep exceptions to radical transparency very rare. 保持激進透明度的例外非常罕見。
+    - d. Make sure those who are given radical transparency recognize their responsibilities to handle it well and to weigh things intelligently. 確保那些有激進的透明度的人認知到他們有責任處理好事情，巧妙地衡量事物。
+    - e. Provide transparency to people who handle it well and either deny it to people who don’t handle it well or remove those people from the organization. 爲那些讓資訊透明且處理妥當的人提供更多資訊，阻擋或是剔除那些不願意讓資訊透明化的人。
+    - f. Don’t share sensitive information with the organization’s enemies. 不要與組織的敵人共享敏感信息。
   - 1.5 Meaningful relationships and meaningful work are mutually reinforcing, especially when supported by radical truth and radical transparency. 有意義的關係和有意義的工作是相輔相成的，特別是在激進的真理和激進的透明度的支持下。
 - 2 Cultivate Meaningful Work and Meaningful Relationships 培育有意義的工作和有意義的關係
   - 2.1 Be loyal to the common mission and not to anyone who is not operating consistently with it. 忠誠於共同的使命，而不要對其他無法跟共同使命共存的人忠誠。
-  - 2.2 Be crystal clear on what the deal is. 對於所有交易要有清楚透徹的了解。
-    - a. Make sure people give more consideration to others than they demand for themselves. 確保人們考慮到其他人的地方比他對其他人要求的事情還要多。
+  - 2.2 Be crystal clear on what the deal is. 完全了解手頭上的生意。
+    - a. Make sure people give more consideration to others than they demand for themselves. 確保人們考慮到事情，比他對自己的要求還要多。
     - b. Make sure that people understand the difference between fairness and generosity. 確保人們了解公平和慷慨的差異。
     - c. Know where the line is and be on the far side of fair. 知道底線在哪裡，並且是在公平的那一方。
     - d. Pay for work. - 工作就是要拿報酬
   - 2.3 Recognize that the size of the organization can pose a threat to meaningful relationships. 認知到組織的規模可能對有意義的關係構成威脅。
   - 2.4 Remember that most people will pretend to operate in your interest while operating in their own. 記住，大多數人會在假裝為你的利益著想做一些看似對你好的事情，實際上是在為自己的利益偷偷幹壞事。
   - 2.5 Treasure honorable people who are capable and will treat you well even when you’re not looking. 珍惜有能力且品德高尚的人，他們會幫助你，即使你看不到。
-- 3 Create a Culture in Which It Is Okay to Make Mistakes and Unacceptable Not to Learn from Them 創造一個文化，它是好的，使錯誤和不接受不從他們學習
-  - 3.1 Recognize that mistakes are a natural part of the evolutionary process. 認知到錯誤是進化過程的一個自然部分。
-    - a. Fail well. 失敗了
-    - b. Don’t feel bad about your mistakes or those of others. Love them! 不要對你的錯誤或別人的錯誤感到不舒服愛他們！
-  - 3.2 Don’t worry about looking good—worry about achieving your goals. 不要擔心實現目標的好心情。
-    - a. Get over 「blame」 and 「credit」 and get on with 「accurate」 and 「inaccurate.」 超越「責備」和「信用」，並且「準確」和「不准確」。
+- 3 Create a Culture in Which It Is Okay to Make Mistakes and Unacceptable Not to Learn from Them 創造一個犯錯沒關係但必須從中學習的文化，
+  - 3.1 Recognize that mistakes are a natural part of the evolutionary process. 要了解，錯誤是進化過程的一個自然部分。
+    - a. Fail well. 聰明犯錯。
+    - b. Don’t feel bad about your mistakes or those of others. Love them! 不要對你的錯誤或別人的錯誤感到不舒服，愛他們！
+  - 3.2 Don’t worry about looking good—worry about achieving your goals. 別管看起來很糟，多放點心在完成目標上。
+    - a. Get over 「blame」 and 「credit」 and get on with 「accurate」 and 「inaccurate.」 放棄「責備」和「信用」，採以「準確」和「不准確」。
   - 3.3 Observe the patterns of mistakes to see if they are products of weaknesses. 觀察錯誤的模式，看看它們是否是弱點的產物。
-  - 3.4 Remember to reflect when you experience pain. 請記住，以反映當你感到疼痛。
-    - a. Be self-reflective and make sure your people are self-reflective. 自我反思，確保你的人自我反思。
+  - 3.4 Remember to reflect when you experience pain. 你感到痛苦的時候，記得反思。
+    - a. Be self-reflective and make sure your people are self-reflective. 自我反思，確保你的人也是。
     - b. Know that nobody can see themselves objectively. 知道沒有人可以客觀地看待自己。
     - c. Teach and reinforce the merits of mistake-based learning. 教導和強化錯誤學習的優點。
   - 3.5 Know what types of mistakes are acceptable and what types are unacceptable, and don’t allow the people who work for you to make the unacceptable ones. 知道什麼類型的錯誤是可以接受的，哪些類型是不可接受的，不允許為你工作的人做出不可接受的錯誤。
 - 4 Get and Stay in Sync 獲取並保持同步
-  - 4.1 Recognize that conflicts are essential for great relationships because they are how people determine whether their principles are aligned and resolve their differences. 認知到衝突對於偉大的關係至關重要，因為他們是人們如何確定他們的原則是否一致並解決他們的分歧。
+  - 4.1 Recognize that conflicts are essential for great relationships because they are how people determine whether their principles are aligned and resolve their differences. 認知到衝突對於偉大的關係至關重要，因為讓人們決定彼此哪些原則是一致的，哪些差異是可以被解決的。
     - a. Spend lavishly on the time and energy you devote to getting in sync, because it’s the best investment you can make.花費大量時間和精力投入到同步中，因為這是您可以做出最好的投資。
-  - 4.2 Know how to get in sync and disagree well. 知道如何同步，不同意。
-    - a. Surface areas of possible out-of-syncness. 可能失去同步性的表面區域。
-    - b. Distinguish between idle complaints and complaints meant to lead to improvement. 區分空閒投訴和投訴意圖導致改善。
+  - 4.2 Know how to get in sync and disagree well. 知道如何同步、表示不同意。
+    - a. Surface areas of possible out-of-syncness. 掃描任何可能失去同步性的區域。
+    - b. Distinguish between idle complaints and complaints meant to lead to improvement. 把毫無意義的抱怨與能帶來改進的抱怨區分開來。
     - c. Remember that every story has another side. 記住，每一個故事都有另一面。
-  - 4.3 Be open-minded and assertive at the same time. 4.3同時開明和堅定。
+  - 4.3 Be open-minded and assertive at the same time. 同時開明和獨裁。
     - a. Distinguish open-minded people from closed-minded people. 將開明的人與封閉的人區分開來。
-    - b. Don’t have anything to do with closed-minded people. 與封閉的人沒有任何關係。
-    - c. Watch out for people who think it’s embarrassing not to know. 注意那些認為尷尬不知道的人。
+    - b. Don’t have anything to do with closed-minded people. 不要放任封閉的人。
+    - c. Watch out for people who think it’s embarrassing not to know. 注意那些認為尷尬而不去了解的人。
     - d. Make sure that those in charge are open-minded about the questions and comments of others. 確保負責人對他人的問題和意見開放。
-    - e. Recognize that getting in sync is a two-way responsibility. 即認知到同步是雙向的責任。
-    - f. Worry more about substance than style. 擔心物質比風格更多。
-    - g. Be reasonable and expect others to be reasonable. 合理，期望別人合理。
-    - h. Making suggestions and questioning are not the same as criticizing, so don’t treat them as if they are. 提出建議和質疑與批評不一樣，所以不要像他們一樣對待他們。
-  - 4.4 If it is your meeting to run, manage the conversation. 如果是您的會議運行，則管理對話。
-    - a. Make it clear who is directing the meeting and whom it is meant to serve. 明確誰指導會議和誰意圖服務。
-    - b. Be precise in what you’re talking about to avoid confusion. 準確地說你在說什麼來避免混淆。
+    - e. Recognize that getting in sync is a two-way responsibility. 認知到同步是雙向的責任。
+    - f. Worry more about substance than style. 擔心實質比風格更多。
+    - g. Be reasonable and expect others to be reasonable. 通情達理，期望別人也講理。
+    - h. Making suggestions and questioning are not the same as criticizing, so don’t treat them as if they are. 提出建議和質疑與批評不一樣，所以不要對待他們好像他們是一樣的。
+  - 4.4 If it is your meeting to run, manage the conversation. 如果這是你主導的會議，好好策畫這場對話。
+    - a. Make it clear who is directing the meeting and whom it is meant to serve. 明確表示誰主導著會議和誰需要配合。
+    - b. Be precise in what you’re talking about to avoid confusion. 準確地表達你在說什麼來避免混淆。
     - c. Make clear what type of communication you are going to have in light of the objectives and priorities.根據目標和優先事項明確你將要具備哪種類型的溝通。
-    - d. Lead the discussion by being assertive and open-minded.以自信和開放的態度領導討論。
+    - d. Lead the discussion by being assertive and open-minded.同時以獨斷和開放的態度領導討論。
     - e. Navigate between the different levels of the conversation.即在不同層次的對話之間進行導航。
-    - f. Watch out for 「topic slip.」注意「主題滑」。
-    - g. Enforce the logic of conversations.強化對話的邏輯。
-    - h. Be careful not to lose personal responsibility via group decision making. 小心不要通過小組決策失去個人責任。
+    - f. Watch out for 「topic slip.」注意別離題了。
+    - g. Enforce the logic of conversations. 對話必須理性、合邏輯。
+    - h. Be careful not to lose personal responsibility via group decision making. 小心，別因為決定是由群體裁決，使參與者在判斷時毫無責任心。
     - i. Utilize the 「two-minute rule」 to avoid persistent interruptions. 利用「兩分鐘規則」避免持續中斷。
-    - j. Watch out for assertive 「fast talkers.」 學家注意自信的「快速通話者」。
-    - k. Achieve completion in conversations. 實現對話完成
-    - l. Leverage your communication.湖利用你的溝通
+    - j. Watch out for assertive 「fast talkers.」 注意「自說自話者」。
+    - k. Achieve completion in conversations. 在對話中完成圓滿。
+    - l. Leverage your communication. 利用溝通達到更大效益。
   - 4.5 Great collaboration feels like playing jazz.偉大的合作感覺就像打爵士樂。
     - a. 1+1=3. 1 + 1 = 3。
     - b. 3 to 5 is more than 20. 3到5是20以上。
-  - 4.6 When you have alignment, cherish it.當你有比對，珍惜它。
-  - 4.7 If you find you can’t reconcile major differences—especially in values—consider whether the relationship is worth preserving.如果你發現你不能調和主要的差異 - 特別是在價值觀 - 考慮關係是否值得保存。
-- 5 Believability Weight Your Decision Making可信度重視您的決策
+  - 4.6 When you have alignment, cherish it. 當你達成共識，珍惜它。
+  - 4.7 If you find you can’t reconcile major differences—especially in values—consider whether the relationship is worth preserving. 如果你發現你不能調和主要的差異 - 特別是在價值觀 - 考慮此關係是否值得繼續下去。
+- 5 Believability Weight Your Decision Making. 讓你的決定可信賴。
   - 5.1 Recognize that having an effective idea meritocracy requires that you understand the merit of each person’s ideas.認知到有效的理想菁英主義要求你了解每個人的想法的優點。
     - a. If you can’t successfully do something, don’t think you can tell others how it should be done.如果你不能成功地做某事，不要以為你能告訴別人怎麼做。
     - b. Remember that everyone has opinions and they are often bad. 記住每個人都有意見，而且往往是壞的。
   - 5.2 Find the most believable people possible who disagree with you and try to understand their reasoning.找到最可信的人可能不同意你的意圖，並試圖理解他們的推理。
-    - a. Think about people’s believability in order to assess the likelihood that their opinions are good.考慮人們的信仰，以評估他們的意見是否良好的可能性。
+    - a. Think about people’s believability in order to assess the likelihood that their opinions are good.考慮人們的可信度，以評估他們意見的可能性有多高。
     - b. Remember that believable opinions are most likely to come from people 1) who have successfully accomplished the thing in question at least three times, and 2) who have great explanations of the cause-effect relationships that lead them to their conclusions.請記住，可信的意見最有可能來自於人們已經成功地完成了這件事情至少三次的人，2）對於導致他們得出結論的因果關係有很大的解釋。
     - c. If someone hasn’t done something but has a theory that seems logical and can be stress-tested, then by all means test it.如果有人沒有做過任何事情，但是有一個似乎是合乎邏輯的理論，可以進行壓力測試，那麼通過一切手段來測試它。
-    - d. Don’t pay as much attention to people’s conclusions as to the reasoning that led them to their conclusions. 不要重視人們的結論，導致他們得出結論的推理。
+    - d. Don’t pay as much attention to people’s conclusions as to the reasoning that led them to their conclusions. 不要花太多心思在人們的結論，但留意使他們導出結論的推理。
     - e. Inexperienced people can have great ideas too, sometimes far better ones than more experienced people.即沒有經驗的人也可以有偉大的想法，有時比更有經驗的人更好。
-    - f. Everyone should be up-front in expressing how confident they are in their thoughts. 每個人都應該在前面表達他們對自己的想法有多自信。
-  - 5.3 Think about whether you are playing the role of a teacher, a student, or a peer and whether you should be teaching, asking questions, or debating. 想想你是否打老師，學生，或對等的角色，你是否應該教學，提出問題，或辯論。
+    - f. Everyone should be up-front in expressing how confident they are in their thoughts. 每個人都應該勇於向前、自信地表達他們的想法。
+  - 5.3 Think about whether you are playing the role of a teacher, a student, or a peer and whether you should be teaching, asking questions, or debating. 想想你是否正在扮演老師、學生、或對等的角色，決定是否應該教學、提出問題、或辯論。
     - a. It’s more important that the student understand the teacher than that the teacher understand the student, though both are important.更重要的是，學生了解老師，而不是老師了解學生，儘管這兩者都很重要。
     - b. Recognize that while everyone has the right and responsibility to try to make sense of important things, they must do so with humility and radical open-mindedness.認知到每個人都有權利和責任嘗試重要的事情，他們必須以謙虛和激進的開放心態去做。
-  - 5.4 Understand how people came by their opinions.了解人們的意見。
-    - a. If you ask someone a question, they will probably give you an answer, so think through to whom you should address your questions. 如果你問一個問題，他們可能會給你一個答案，所以想想你應該解決你的問題。
-    - b. Having everyone randomly probe everyone else is an unproductive waste of time.讓每個人都隨機探索其他人是一個非生產性的浪費時間。
-    - c. Beware of statements that begin with 「I think that . . .」當心以「我認為」為首的言論。。 「。
-    - d. Assess believability by systematically capturing people’s track records over time.通過系統地捕獲人們的跟踪記錄來評估信念。
-  - 5.5 Disagreeing must be done efficiently.必須有效地做出不同意見。
+  - 5.4 Understand how people came by their opinions.了解人們如何得到他們的意見的。
+    - a. If you ask someone a question, they will probably give you an answer, so think through to whom you should address your questions. 如果你問一個問題，他們可能會給你一個答案，所以想想你應該向誰提問。
+    - b. Having everyone randomly probe everyone else is an unproductive waste of time.讓每個人都隨機探索其他人是無效且浪費時間。
+    - c. Beware of statements that begin with 「I think that . . .」當心以「我認為」為首的言論。
+    - d. Assess believability by systematically capturing people’s track records over time. 用系統化及持續追蹤紀錄的方式，來評斷人們的可信度。
+  - 5.5 Disagreeing must be done efficiently. 必須有效率地提出不同意。
     - a. Know when to stop debating and move on to agreeing about what should be done.知道什麼時候停止辯論，繼續同意應該做什麼。
-    - b. Use believability weighting as a tool rather than a substitute for decision making by Responsible Parties.使用信譽加權作為工具，而不是替代責任方的決策。
+    - b. Use believability weighting as a tool rather than a substitute for decision making by Responsible Parties.使用信譽加權作為工具，而不是決策本身。
     - c. Since you don’t have the time to thoroughly examine everyone’s thinking yourself, choose your believable people wisely.既然你沒有時間徹底地檢查每個人的思考，請明智地選擇你信得過的人。
-    - d. When you’re responsible for a decision, compare the believability-weighted decision making of the crowd to what you believe.當你對決定負責時，將人群的信仰加權決策與你所相信的相比較。
+    - d. When you’re responsible for a decision, compare the believability-weighted decision making of the crowd to what you believe.當你對決定負責時，將人群決策的可信加權與你所相信的相比較。
   - 5.6 Recognize that everyone has the right and responsibility to try to make sense of important things.認知到每個人都有權利和責任去嘗試重要的事情。
-    - a. Communications aimed at getting the best answer should involve the most relevant people.旨在獲得最佳答案的通信應涉及最相關的人員。
-    - b. Communication aimed at educating or boosting cohesion should involve a broader set of people than would be needed if the aim were just getting the best answer.旨在教育或提高凝聚力的傳播應該涉及一個更廣泛的人，比目標只是獲得最佳答案所需要的更廣泛的人。
-    - c. Recognize that you don’t need to make judgments about everything.認知到你不需要對一切做出判斷。
-  - 5.7 Pay more attention to whether the decision-making system is fair than whether you get your way. 更多關注決策制度是否公平，不管你是否有所作為。
+    - a. Communications aimed at getting the best answer should involve the most relevant people. 對話旨在獲得最佳答案，只應讓最相關的人員參與。
+    - b. Communication aimed at educating or boosting cohesion should involve a broader set of people than would be needed if the aim were just getting the best answer. 如果對話旨在教育或提高凝聚力，應該涉及更廣泛的人群，比旨在獲得最佳答案所需要的更廣泛。
+    - c. Recognize that you don’t need to make judgments about everything. 認知到你不需要對一切做出評論。
+  - 5.7 Pay more attention to whether the decision-making system is fair than whether you get your way. 花更多心力在決策系統上是否公平，不是為所欲為。
 - 6 Recognize How to Get Beyond Disagreements 認識如何超越分歧
   - 6.1 Remember: Principles can’t be ignored by mutual agreement.記住：相互協議不能忽視原則。
     - a. The same standards of behavior apply to everyone.同樣的行為標準適用於每個人。
   - 6.2 Make sure people don’t confuse the right to complain, give advice, and openly debate with the right to make decisions.確保人們不要混淆投訴權，提供意見和公開辯論的權利作出決定。
-    - a. When challenging a decision and/or a decision maker, consider the broader context.在挑戰決策和/或決策者時，考慮更廣泛的背景。
+    - a. When challenging a decision and/or a decision maker, consider the broader context.在挑戰決策和/或決策者時，得考慮更廣泛的情境。
   - 6.3 Don’t leave important conflicts unresolved.不要留下重大衝突而未解決。
-    - a. Don’t let the little things divide you when your agreement on the big things should bind you.當你對大事情的約定應該束縛你時，不要讓小事分裂你。
+    - a. Don’t let the little things divide you when your agreement on the big things should bind you.當你對大事情有所約定、束縛時，不要讓小事分裂你。
     - b. Don’t get stuck in disagreement—escalate or vote!不要陷入分歧 - 升級或投票！
-  - 6.4 Once a decision is made, everyone should get behind it even though individuals may still disagree.6.4一旦做出決定，即使個人可能仍然不同意，每個人都應該落後。
-    - a. See things from the higher level.看到上級的事情。
-    - b. Never allow the idea meritocracy to slip into anarchy.永遠不允許這個理想菁英主義統一到無政府狀態。
+  - 6.4 Once a decision is made, everyone should get behind it even though individuals may still disagree. 一旦做出決定，即使個人可能仍然不同意，每個人都應該支持。
+    - a. See things from the higher level. 從更高的地方看事情。
+    - b. Never allow the idea meritocracy to slip into anarchy.永遠不允許從理想菁英主義滑到無政府狀態。
     - c. Don’t allow lynch mobs or mob rule.不允許暴徒或暴徒統治。
   - 6.5 Remember that if the idea meritocracy comes into conflict with the well-being of the organization, it will inevitably suffer.請記住，如果這個理想菁英主義接觸到組織的福祉衝突，也難免會受到影響。
     - a. Declare 「martial law」 only in rare or extreme circumstances when the principles need to be suspended.只有在罕見或極端的情況下才應該暫停執行「戒嚴」。
-    - b. Be wary of people who argue for the suspension of the idea meritocracy for the 「good of the organization.」要警惕那些爭辯中斷「精神​​組織」的理想菁英主義的人。
+    - b. Be wary of people who argue for the suspension of the idea meritocracy for the 「good of the organization.」要警惕那些「為了組織好」而爭辯中斷「理想菁英主義」的人。
   - 6.6 Recognize that if the people who have the power don’t want to operate by principles, the principled way of operating will fail.認知到如果有權力的人不想按原則運作，原則上的運作方式就會失敗。
 
 ## TO GET THE PEOPLE RIGHT . . .如何正確雇用人
 
 - 7 Remember That the WHO Is More Important than the WHAT 記住 WHO 比WHAT更重要
-  - 7.1 Recognize that the most important decision for you to make is who you choose as your Responsible Parties. 認知到您最重要的決定是您選擇作為您的責任方。
-    - a. Understand that the most important RPs are those responsible for the goals, outcomes, and machines at the highest levels. 了解最重要的折任方是對最高級別的目標，成果和機器負責的。
-　- 7.2 Know that the ultimate Responsible Party will be the person who bears the consequences of what is done. 知道最終的責任方將是承擔所做後果的人。
-    - a. Make sure that everyone has someone they report to.確保每個人都有他們報告的人。
-  - 7.3 Remember the force behind the thing. 記住的事情背後的力量。
+  - 7.1 Recognize that the most important decision for you to make is who you choose as your Responsible Parties. 認知到您最重要的決定，是您選擇誰進入責任方。
+    - a. Understand that the most important RPs are those responsible for the goals, outcomes, and machines at the highest levels. 了解最重要的責任方，是對要目標、產出以及重複複製負最高責任。
+- 7.2 Know that the ultimate Responsible Party will be the person who bears the consequences of what is done. 知道最終的責任方將是承擔所做後果的人。
+  - a. Make sure that everyone has someone they report to.確保每個人都需要向某人匯報。
+- 7.3 Remember the force behind the thing. 記住的事情背後的力量。
 - 8 Hire Right, Because the Penalties for Hiring Wrong Are Huge 雇用對的人，用錯了人，代價會極為慘重
   - 8.1 Match the person to the design.　將人與設計相匹配
     - a. Think through which values, abilities, and skills you are looking for (in that order).　想想你正在尋找哪些價值觀，能力和技能（按照這個順序）。
-    - b. Make finding the right people systematic and scientific.找到合適的人系統科學。
+    - b. Make finding the right people systematic and scientific. 系統且科學化的找到對的人。
     - c. Hear the click: Find the right fit between the role and the person.　聽到咔噠聲：所需職位和聘用之人一定要匹配合適。
     - d. Look for people who sparkle, not just 「any ol’ one of those.」　尋找閃閃發光的人，而不是又是一個「任意一個人」。
-    - e. Don’t use your pull to get someone a job.　即不要用你的拉力讓一個人工作。
-  - 8.2 Remember that people are built very differently and that different ways of seeing and thinking make people suitable for different jobs.　記住，人們建立得非常不同，不同的觀察和思維方式使人們適合不同的工作。
+    - e. Don’t use your pull to get someone a job. 不要努去處騰出一個位子給人。
+  - 8.2 Remember that people are built very differently and that different ways of seeing and thinking make people suitable for different jobs.　記住，人們本來不同，因為那些看待事情的角度和思維方式的不同使人們適合不同的工作。
     - a. Understand how to use and interpret personality assessments.　要知道如何使用和解讀性格測試
     - b. Remember that people tend to pick people like themselves, so choose interviewers who can identify what you are looking for. 要記住，人們傾向於選擇和自己相似的人，因此應挑選那些瞭解你想雇用何種員工的人擔任面試考官。
     - c. Look for people who are willing to look at themselves objectively.尋找願意客觀看待自己的人。
     - d. Remember that people typically don’t change all that much.　記住，人們通常不會改變那麼多。
   - 8.3 Think of your teams the way that sports managers do: No one person possesses everything required to produce success, yet everyone must excel.　8.3想想你的團隊體育經理人的方式：沒有人擁有一切所需要的成功，但每個人都必須擅長。
   - 8.4 Pay attention to people’s track records.　8.4注意人們的記錄。
-    - a. Check references.　檢查參考。
+    - a. Check references.　參考文獻。
     - b. Recognize that performance in school doesn’t tell you much about whether a person has the values and abilities you are looking for.　要認知到，學校表現的表現評估，並不能體現一個人是否具有你正在尋找的價值和能力。
     - c. While it’s best to have great conceptual thinkers, understand that great experience and a great track record also count for a lot.　雖然最好有偉大的概念思想家，但是理解，偉大的經驗和良好的記錄也算得上很多。
     - d. Beware of the impractical idealist.　當心不切實際的理想主義者。
@@ -151,64 +151,64 @@
     - f. Make sure your people have character and are capable. 確保你的人有性格，有能力。
   - 8.5 Don’t hire people just to fit the first job they will do; hire people you want to share your life with. 不要聘用那些只把橋水當作第一份工作的人，要用那些你願之分享人生的人。　
     - a. Look for people who have lots of great questions.　尋找有很多很好的問題的人。
-    - b. Show candidates your warts.　顯示候選人您的疣。
-    - c. Play jazz with people with whom you are compatible but who will also challenge you.　與你兼容的人玩爵士樂，但誰也會挑戰你。
+    - b. Show candidates your warts.　向應徵者展示你的缺點。
+    - c. Play jazz with people with whom you are compatible but who will also challenge you. 像玩爵士一樣，兼容又挑戰你。
   - 8.6 When considering compensation, provide both stability and opportunity.　考慮補償時，既提供穩定性，又要提供機會。
     - a. Pay for the person, not the job. 以人論酬，而不是以崗論酬
     - b. Have performance metrics tied at least loosely to compensation.　績效指標至少與賠償相關。
     - c. Pay north of fair.　在公平的北方支付。
-    - d. Focus more on making the pie bigger than on exactly how to slice it so that you or anyone else gets the biggest piece.　更多地關注製作餡餅的大小比準確分解它，以便您或任何其他人獲得最大的一塊。
-  - 8.7 Remember that in great partnerships, consideration and generosity are more important than money.　請記住，在良好的合作關係，思考和慷慨是比金錢更重要。
+    - d. Focus more on making the pie bigger than on exactly how to slice it so that you or anyone else gets the biggest piece.　比起準確分解它，放更多地關注在製作餡餅的大小上，以便您或任何其他人獲得更大的一塊。
+  - 8.7 Remember that in great partnerships, consideration and generosity are more important than money.　請記住，在良好的合作關係，思考和慷慨比金錢更重要。
     - a. Be generous and expect generosity from others.慷慨，期待別人的慷慨。
-  - 8.8 Great people are hard to find so make sure you think about how to keep them.　很棒的人很難找到，所以確保你考慮如何保持他們。
-- 9 Constantly Train, Test, Evaluate, and Sort People　不斷訓練，測試，評估和排序人
+  - 8.8 Great people are hard to find so make sure you think about how to keep them.　很棒的人很難找到，所以確保你有考量到如何保留他們。
+- 9 Constantly Train, Test, Evaluate, and Sort People　不斷訓練、測試、評估和排序人
   - 9.1 Understand that you and the people you manage will go through a process of personal evolution. 了解您和您管理的人員將經歷個人進化過程。
-    - a. Recognize that personal evolution should be relatively rapid and a natural consequence of discovering one’s strengths and weaknesses; as a result, career paths are not planned at the outset.認知到個人演變應該相對較快，是發現自己的優點和缺點的自然後果;因此，一開始就沒有計劃職業道路。
+    - a. Recognize that personal evolution should be relatively rapid and a natural consequence of discovering one’s strengths and weaknesses; as a result, career paths are not planned at the outset.認知到個人演變應該相對較快，是發現自己的優點和缺點自然產生的結果;因此，一開始就沒有計劃職業道路。
     - b. Understand that training guides the process of personal evolution.了解培訓指導個人進化過程。
     - c. Teach your people to fish rather than give them fish, even if that means letting them make some mistakes.教你的人釣魚，而不是給他們魚，即使這意味著讓他們犯一些錯誤。
     - d. Recognize that experience creates internalized learning that book learning can’t replace.認知到經驗創造內在學習，書籍學習無法取代。
   - 9.2 Provide constant feedback.提供不間斷的反饋。
-  - 9.3 Evaluate accurately, not kindly.準確評估，不善於。
+  - 9.3 Evaluate accurately, not kindly. 準確的評估，不含糊。
     - a. In the end, accuracy and kindness are the same thing.最後，準確性和善意是一回事。
     - b. Put your compliments and criticisms in perspective. 正確對待表揚和批評
-    - c. Think about accuracy, not implications.考慮準確性，而不是影響。
+    - c. Think about accuracy, not implications. 考慮精確，不隱諱。
     - d. Make accurate assessments.準確評估。
     - e. Learn from success as well as from failure.即從成功和失敗中學習。
     - f. Know that most everyone thinks that what they did, and what they are doing, is much more important than it really is.知道大多數人都認為他們做了什麼，他們在做什麼比它真正重要。
-  - 9.4 Recognize that tough love is both the hardest and the most important type of love to give (because it is so rarely welcomed).認知到，堅韌的愛情既是最難的，也是最重要的愛情類型（因為很少受到歡迎）。
-    - a. Recognize that while most people prefer compliments, accurate criticism is more valuable.認知到大多數人喜歡讚美，準確的批評更有價值。
+  - 9.4 Recognize that tough love is both the hardest and the most important type of love to give (because it is so rarely welcomed).認知到，嚴苛的愛，既是最難的，也是最重要愛的類型（因為很少受到歡迎）。
+    - a. Recognize that while most people prefer compliments, accurate criticism is more valuable.認知到大多數人喜歡讚美，但準確的批評更有價值。
   - 9.5 Don’t hide your observations about people.不要隱瞞你對人的看法。
     - a. Build your synthesis from the specifics up.從細節構建您的綜合。
-    - b. Squeeze the dots.擠壓點
-    - c. Don’t oversqueeze a dot.不要擠壓點。
+    - b. Squeeze the dots. 找到施力點施力。
+    - c. Don’t oversqueeze a dot. 不要過度地向施力點施壓。
     - d. Use evaluation tools such as performance surveys, metrics, and formal reviews to document all aspects of a person’s performance.使用績效考核，指標和正式評估等評估工具來記錄個人表現的各個方面。
-  - 9.6 Make the process of learning what someone is like open, evolutionary, and iterative.學習什麼是開放，進化和迭代的過程。
+  - 9.6 Make the process of learning what someone is like open, evolutionary, and iterative. 更進一步學習什麼是開放、進化和迭代的過程。
     - a. Make your metrics clear and impartial.使您的指標清晰公正。
     - b. Encourage people to be objectively reflective about their performance.鼓勵人們客觀反思他們的表現。
-    - c. Look at the whole picture.看整個圖片。
-    - d. For performance reviews, start from specific cases, look for patterns, and get in sync with the person being reviewed by looking at the evidence together.對於績效評估，從特定情況開始，尋找模式，並通過一起查看證據與正在審核的人同步。
-    - e. Remember that when it comes to assessing people, the two biggest mistakes you can make are being overconfident in your assessment and failing to get in sync on it.即記住，在評估人的時候，你可以做出的兩個最大的錯誤是在你的評估中過於自信，沒有得到同步。
+    - c. Look at the whole picture. 縱觀全局。
+    - d. For performance reviews, start from specific cases, look for patterns, and get in sync with the person being reviewed by looking at the evidence together.對於績效評估，從特定情況開始，尋找模式，並與正在正在審視的人一起查看跡象。
+    - e. Remember that when it comes to assessing people, the two biggest mistakes you can make are being overconfident in your assessment and failing to get in sync on it.即記住，在評估人的時候，你可以做出的兩個最大的錯誤是在你的評估中過於自信，以及沒有進行同步。
     - f. Get in sync on assessments in a nonhierarchical way.以非分層方式同步評估。
     - g. Learn about your people and have them learn about you through frank conversations about mistakes and their root causes. 了解你的人，讓他們通過關於錯誤和根本原因的坦率對話來了解你。
     - h. Understand that making sure people are doing a good job doesn’t require watching everything that everybody is doing at all times. 明白確保人們做得很好，不需要隨時看每個人都在做的事情。
-    - i. Recognize that change is difficult. 認知到變化是困難的。
-    - j. Help people through the pain that comes with exploring their weaknesses.學家幫助人們通過探索自己的弱點所帶來的痛苦。
-  - 9.7 Knowing how people operate and being able to judge whether that way of operating will lead to good results is more important than knowing what they did.9.7知道人們如何操作和能夠判斷這種運作方式是否會導致良好的結果比知道他們做了什麼更重要。
+    - i. Recognize that change is difficult. 認知到改變是困難的。
+    - j. Help people through the pain that comes with exploring their weaknesses.學家幫助人們過度探索自己的弱點時所帶來的痛苦。
+  - 9.7 Knowing how people operate and being able to judge whether that way of operating will lead to good results is more important than knowing what they did. 知道人們如何運作，並能夠判斷這種運作方式是否會導致良好的結果，比知道他們做了什麼更重要。
     - a. If someone is doing their job poorly, consider whether it is due to inadequate learning or inadequate ability.如果有人做得不好，考慮是否由於學習不足或能力不足。
-    - b. Training and testing a poor performer to see if he or she can acquire the required skills without simultaneously trying to assess their abilities is a common mistake. 訓練和測試一個表現不佳的人，看看他或她是否可以獲得所需的技能，而不同時嘗試評估他們的能力是一個常見的錯誤。
+    - b. Training and testing a poor performer to see if he or she can acquire the required skills without simultaneously trying to assess their abilities is a common mistake. 訓練和測試一個表現不佳的人，看看他或她是否可以獲得所需的技能，而不同時嘗試評估他們的能力，是一個常見的錯誤。
   - 9.8 Recognize that when you are really in sync with someone about their weaknesses, the weaknesses are probably true.認知到當你真正與某人談論自己的弱點時，其弱點可能是正確的。
-    - a. When judging people, remember that you don’t have to get to the point of 「beyond a shadow of a doubt.」 在判斷人的時候，要記住，你不必「超越一個懷疑的陰影」。
-    - b. It should take you no more than a year to learn what a person is like and whether they are a click for their job. 你不應該花一年的時間來了解一個人是什麼樣的，以及他們是否是一個點擊工作。
+    - a. When judging people, remember that you don’t have to get to the point of 「beyond a shadow of a doubt.」 在判斷人的時候，要記住，你不必「超越合理懷疑的陰影下」。
+    - b. It should take you no more than a year to learn what a person is like and whether they are a click for their job. 你不應該花一年的時間來了解一個人是什麼樣的，以及他們是否是一個適合工作。
     - c. Continue assessing people throughout their tenure.在任職期間繼續評估人。
     - d. Evaluate employees with the same rigor as you evaluate job candidates. 評估員工的評價與評估候選人一樣嚴格。
-  - 9.9 Train, guardrail, or remove people; don’t rehabilitate them. 火車，護欄或拆除人;不要讓他們康復
-    - a. Don’t collect people.不要收集人。
-    - b. Be willing to 「shoot the people you love.」 願意「拍你所愛的人」。
-    - c. When someone is 「without a box,」 consider whether there is an open box that would be a better fit or whether you need to get them out of the company.當有人「沒有盒子」時，請考慮是否有一個更合適的開箱，或者是否需要讓他們離開公司。
-    - d. Be cautious about allowing people to step back to another role after failing.對於允許人們在失敗後再退回另一個角色時要小心謹慎。
-  - 9.10 Remember that the goal of a transfer is the best, highest use of the person in a way that benefits the community as a whole.請記住，轉移的目標是以有利於整個社區的方式對人的最佳，最高的使用。
-    - a. Have people 「complete their swings」 before moving on to new roles.有人在完成他們的擺動之前，繼續前進新的角色。
-  - 9.11 Don’t lower the bar.不要放下吧。
+  - 9.9 Train, guardrail, or remove people; don’t rehabilitate them. 火車、護欄或剔除人;不要讓他們復原。
+    - a. Don’t collect people.不要收集人才。
+    - b. Be willing to 「shoot the people you love.」 願意「射擊你所愛的人」。
+    - c. When someone is 「without a box,」 consider whether there is an open box that would be a better fit or whether you need to get them out of the company.當有人沒有合適的位置時，請考慮是否有一個更合適位子，或者是否需要讓他們離開公司。
+    - d. Be cautious about allowing people to step back to another role after failing. 當讓人們失敗，要讓他們回復到上一個角色時要十分謹慎。
+  - 9.10 Remember that the goal of a transfer is the best, highest use of the person in a way that benefits the community as a whole. 請記住將一個人轉調的目的，是能有利團體並運用人才，也是最好的方法。
+    - a. Have people 「complete their swings」 before moving on to new roles. 讓他們完成現在的目標，再繼續前進新的角色。
+  - 9.11 Don’t lower the bar. 不要降低標準。
 
 ## TO BUILD AND EVOLVE YOUR MACHINE . . .建立和推動您的機器。。。
 
@@ -217,62 +217,61 @@
     - a. Constantly compare your outcomes to your goals.不斷將您的成果與您的目標進行比較。
     - b. Understand that a great manager is essentially an organizational engineer.了解一位偉大的經理本質上是組織工程師。
     - c. Build great metrics.建立良好的指標。
-    - d. Beware of paying too much attention to what is coming at you and not enough attention to your machine.要注意太多的注意力在你身邊，沒有足夠的關注你的機器。
-    - e. Don’t get distracted by shiny objects.即不要被閃亮的物體分心。
-  - 10.2 Remember that for every case you deal with, your approach should have two purposes: 1) to move you closer to your goal, and 2) to train and test your machine (i.e., your people and your design).請記住，你處理每一個情況下，你的做法應該有兩個目的：1）你靠攏，你的目標，和2）訓練和測試你的機器（即你的人，你的設計）。
+    - d. Beware of paying too much attention to what is coming at you and not enough attention to your machine.要注意，別分太多的注意力在即將發生的事上，而沒有足夠的關注你的機器。
+    - e. Don’t get distracted by shiny objects. 不要被閃亮的物體分心。
+  - 10.2 Remember that for every case you deal with, your approach should have two purposes: 1) to move you closer to your goal, and 2) to train and test your machine (i.e., your people and your design).請記住，你處理每一個情況下，你的做法應該有兩個目的：1）更接近你的目標，和2）訓練和測試你的機器（即你的人，你的設計）。
     - a. Everything is a case study.一切都是案例研究。
-    - b. When a problem occurs, conduct the discussion at two levels: 1) the machine level (why that outcome was produced) and 2) the case-at-hand level (what to do about it).當發生問題時，請在兩個層面進行討論：1）機器級別（為什麼產生結果）和2）手頭上的級別（如何處理）。
+    - b. When a problem occurs, conduct the discussion at two levels: 1) the machine level (why that outcome was produced) and 2) the case-at-hand level (what to do about it).當發生問題時，請在兩個層面進行討論：1）機器級別（怎麼發生的、怎麼產生的）和2）手頭上的級別（如何處理）。
     - c. When making rules, explain the principles behind them.制定規則時，要解釋背後的原則。
-    - d. Your policies should be natural extensions of your principles. 您的政策應該是自然延伸的原則。
+    - d. Your policies should be natural extensions of your principles. 您的政策應該是由原則自然延伸的。
     - e. While good principles and policies almost always provide good guidance, remember that there are exceptions to every rule.雖然良好的原則和政策幾乎總是提供良好的指導，但請記住，每個規則都有例外。
   - 10.3 Understand the differences between managing, micromanaging, and not managing.10.3了解管理，微型管理和不管理之間的區別。
     - a. Managers must make sure that what they are responsible for works well.
-管理者必須確保他們負責的工作良好。
+      管理者必須確保他們負責的工作良好。
     - b. Managing the people who report to you should feel like skiing together. 管理下屬應該感覺到是一同滑雪一樣
     - c. An excellent skier is probably going to be a better ski coach than a novice skier. 一名優秀的滑雪運動員可能會成為一名比新手滑雪者更好的滑雪教練。
-    - d. You should be able to delegate the details.你應該可以委派細節。
-  - 10.4 Know what your people are like and what makes them tick, because your people are your most important resource.了解你的人都喜歡什麼，什麼使他們落，因為你的人是你最重要的資源。
-    - a. Regularly take the temperature of each person who is important to you and to the organization.定期把每一個對你和組織重要的人的溫度。
-    - b. Learn how much confidence to have in your people—don’t assume it.了解你的人有多少信心 - 不要承擔它。
-    - c. Vary your involvement based on your confidence.根據你的信心改變你的參與。
+    - d. You should be able to delegate the details.你應該要有能力將細節委派出去。
+  - 10.4 Know what your people are like and what makes them tick, because your people are your most important resource.了解你的人都喜歡什麼，什麼驅使他們不斷行動，因為你的人是你最重要的資源。
+    - a. Regularly take the temperature of each person who is important to you and to the organization.定期對每一個對你重要的人加溫，並推至團體。
+    - b. Learn how much confidence to have in your people—don’t assume it.了解你對你的人有多少信心 - 不要猜測。
+    - c. Vary your involvement based on your confidence. 根據你信心的程度，調整你參與的程度。
   - 10.5 Clearly assign responsibilities.明確分配責任。
     - a. Remember who has what responsibilities.記住誰有什麼責任
-    - b. Watch out for 「job slip.」注意「工作單」。
-  - 10.6 Probe deep and hard to learn what you can expect from your machine.探測器深入了解您對機器的期望。
-    - a. Get a threshold level of understanding.獲得門檻的了解程度。
-    - b. Avoid staying too distant.避免太遠。
-    - c. Use daily updates as a tool for staying on top of what your people are doing and thinking.使用每日更新作為一個工具，保持在你的人在做什麼和思考之上。
-    - d. Probe so you know whether problems are likely to occur before they actually do.探測，所以你知道問題是否可能發生在他們實際做之前。
-    - e. Probe to the level below the people who report to you.即探測到報告給你的人員以下的水平。
+    - b. Watch out for 「job slip.」注意「工作滑掉」。
+  - 10.6 Probe deep and hard to learn what you can expect from your machine. 更加深入探測並瞭解你可以對你的機器有多少期望
+    - a. Get a threshold level of understanding. 爲對事物的了解程度設置門檻。
+    - b. Avoid staying too distant. 避免離太遠。
+    - c. Use daily updates as a tool for staying on top of what your people are doing and thinking.使用每日更新作為一個工具，讓你保持在你的人在做什麼和思考之上。
+    - d. Probe so you know whether problems are likely to occur before they actually do. 探測，所以你在問題發生之前，了解這是有可能發生的。
+    - e. Probe to the level below the people who report to you. 探測到報告給你的人員以下的水平。
     - f. Have the people who report to the people who report to you feel free to escalate their problems to you.
-向報告給你的人報告的人有機會向自己的問題升級。
-    - g. Don’t assume that people’s answers are correct.不要以為人的答案是正確的。
+      讓報告的人、報告給你的人有機會將自己的問題升級。
+    - g. Don’t assume that people’s answers are correct. 不要設想人的答案是正確的。
     - h. Train your ear.訓練你的耳朵
-    - i. Make your probing transparent rather than private.使你的探索透明而不是私人。
-    - j. Welcome probing.學家歡迎探索。
-    - k. Remember that people who see things and think one way often have difficulty communicating with and relating to people who see things and think another way. 要記住，看待事物與思維不同的人，在交流和相處上是困難的。
-    - l. Pull all suspicious threads.湖拉出所有可疑線程。
-    - m. Recognize that there are many ways to skin a cat. 米認知到有很多方法來撫養一隻貓。
+    - i. Make your probing transparent rather than private. 使你的探測透明化而不是私藏。
+    - j. Welcome probing. 歡迎探索。
+    - k. Remember that people who see things and think one way often have difficulty communicating with and relating to people who see things and think another way. 要記住，看待事物單一的人與多角度思維的人，在交流和相處上是困難的。
+    - l. Pull all suspicious threads. 拉出所有可疑的思路。
+    - m. Recognize that there are many ways to skin a cat. 認知到有很多方法來安撫一隻貓（解決問題）。
   - 10.7 Think like an owner, and expect the people you work with to do the same. 要有主人翁思維，並希望員工門也能具備這種思維方式。
     - a. Going on vacation doesn’t mean one can neglect one’s responsibilities. 休假並不意味著可以忽視自己的責任。
     - b. Force yourself and the people who work for you to do difficult things. 強迫自己和員工迎難而上。
-  - 10.8 Recognize and deal with key-man risk.認識和處理與關鍵人的風險。
+  - 10.8 Recognize and deal with key-man risk.認知和處理關鍵人的風險。
   - 10.9 Don’t treat everyone the same—treat them appropriately. 不要對待每個人一樣 - 妥善對待他們。
-    - a. Don’t let yourself get squeezed. 不要讓自己被擠壓。
-    - b. Care about the people who work for you.
-關心為你工作的人。
-  - 10.10 Know that great leadership is generally not what it’s made out to be. 知道偉大的領導一般不是它的成就。
-    - a. Be weak and strong at the same time.同時弱弱強壯。
-    - b. Don’t worry about whether or not your people like you and don’t look to them to tell you what you should do.不要擔心你的人是否喜歡你，不要看他們告訴你應該做什麼。
-    - c. Don’t give orders and try to be followed; try to be understood and to understand others by getting in sync.不要命令，盡量遵守;嘗試了解並通過同步了解他人。
-  - 10.11 Hold yourself and your people accountable and appreciate them for holding you accountable.讓自己和你的人負責，並感謝他們讓你負責。
-    - a. If you’ve agreed with someone that something is supposed to go a certain way, make sure it goes that way—unless you get in sync about doing it differently.如果您已經同意某人應該以某種方式進行某種操作，請確保這樣做，除非您同步進行不同的操作。
+    - a. Don’t let yourself get squeezed. 不要讓自己被榨乾。
+    - b. Care about the people who work for you. 關心為你工作的人。
+  - 10.10 Know that great leadership is generally not what it’s made out to be. 知道偉大的領導一般不是被設計好的。
+    - a. Be weak and strong at the same time.兼具虛弱、強壯。
+    - b. Don’t worry about whether or not your people like you and don’t look to them to tell you what you should do.不要擔心你的人是否喜歡你，不要等待他們告訴你應該做什麼。
+    - c. Don’t give orders and try to be followed; try to be understood and to understand others by getting in sync. 不要指使，盡量支持；透過同步讓人了解自己也瞭解他人。
+  - 10.11 Hold yourself and your people accountable and appreciate them for holding you accountable.讓自己和你的人負起責任，並感謝他們讓你能負起責任來。
+    - a. If you’ve agreed with someone that something is supposed to go a certain way, make sure it goes that way—unless you get in sync about doing it differently.如果您已經同意某人應該以某種方式進行某種操作，請確保這樣做，除非您同步然後進行不同的操作。
     - b. Distinguish between a failure in which someone broke their 「contract」 and a failure in which there was no contract to begin with. 要分清楚，有些工作上的失敗是因為員工沒有履行一開始的「約定」，而有些則是一開始就沒有指定「約定」。
     - c. Avoid getting sucked down. 避免「上級捲入下級工作職責」現象
     - d. Watch out for people who confuse goals and tasks, because if they can’t make that distinction, you can’t trust them with responsibilities. 提防那些混淆目標與任務的員工，不能理解工作目標的員工是不值得信任的。
     - e. Watch out for the unfocused and unproductive 「theoretical should.」 要警惕交流出現沒有重點，低效無用的句式：我們應該如何。
-  - 10.12 Communicate the plan clearly and have clear metrics conveying whether you are progressing according to it.明確溝通計劃，並明確指出您是否按照進度進行指標。
-    - a. Put things in perspective by going back before going forward.把事情放在前景的前面。
+  - 10.12 Communicate the plan clearly and have clear metrics conveying whether you are progressing according to it.明確溝通計劃，並明確指出您是否按照指標行進。
+    - a. Put things in perspective by going back before going forward. 重新檢視事情，以退為進。
   - 10.13 Escalate when you can’t adequately handle your responsibilities and make sure that the people who work for you are proactive about doing the same. 如果發現自己無法有效解決問題時，應將問題提報給上級，確保為你工作的員工們也是這樣操作的。
 - 11 Perceive and Don’t Tolerate Problems感知和不容忍問題
   - 11.1 If you’re not worried, you need to worry—and if you’re worried, you don’t need to worry. 11.1如果你不擔心，你需要擔心，如果你擔心，你不需要擔心。
@@ -284,7 +283,7 @@
     - e. 「Taste the soup.」即 「品嚐湯」。
     - f. Have as many eyes looking for problems as possible.盡可能多的眼睛尋找問題。
     - g. 「Pop the cork.」 「拔出瓶塞」
-    - h. Realize that the people closest to certain jobs probably know them best.意識到最接近某些工作的人可能最了解他們。
+    - h. Realize that the people closest to certain jobs probably know them best. 意識到與某些工作最近的人，可能最了解它們。
   - 11.3 Be very specific about problems; don’t start with generalizations. 對問題非常明確;不要從概括開始。
     - a. Avoid the anonymous 「we」 and 「they,」 because they mask personal responsibility.避免匿名「我們」和「他們」，因為它們掩蓋個人責任。
   - 11.4 Don’t be afraid to fix the difficult things.不要害怕修復困難的事情。
@@ -294,17 +293,17 @@
     - a. Ask yourself: 「Who should do what differently?」　問問自己：「誰應該做不同的事情？」
     - b. Identify at which step in the 5-Step Process the failure occurred.　確定五步驟過程中哪個步驟發生故障。
     - c. Identify the principles that were violated.　確定違反的原則。
-    - d. Avoid Monday morning quarterbacking.避免星期一上午四分衛。
+    - d. Avoid Monday morning quarterbacking.避免星期一上午指揮。
     - e. Don’t confuse the quality of someone’s circumstances with the quality of their approach to dealing with the circumstances.　即不要將某人的情況質量與他們處理情況的方法的質量相混淆。
     - f. Identifying the fact that someone else doesn’t know what to do doesn’t mean that you know what to do.　識別別人不知道該怎麼做的事實並不意味著你知道該怎麼做。
     - g. Remember that a root cause is not an action but a reason.　記住，根本原因不是一個行動，而是一個原因。
-    - h. To distinguish between a capacity issue and a capability issue, imagine how the person would perform at that particular function if they had ample capacity.　為了區分能力問題和能力問題，想像一下如果他們有足夠的能力，該人員將如何履行該特定職能。
+    - h. To distinguish between a capacity issue and a capability issue, imagine how the person would perform at that particular function if they had ample capacity.　為了區分資格問題和能力問題，想像一下如果他們有足夠的能力，該人員將如何履行該特定職能。
     - i. Keep in mind that managers usually fail or fall short of their goals for one (or more) of five reasons.　請記住，由於五個原因之一（或更多），管理人員通常會失敗或不能達到目標。
-  - 12.2 Maintain an emerging synthesis by diagnosing continuously.　通過不斷診斷維持新興綜合。
+  - 12.2 Maintain an emerging synthesis by diagnosing continuously.　通過不斷的診斷，來維護不斷更新的綜合體。
   - 12.3 Keep in mind that diagnoses should produce outcomes.　請記住，診斷應產生結果。
-    - a. Remember that if you have the same people doing the same things, you should expect the same results.記住，如果你有同樣的人做同樣的事情，你應該期待同樣的結果。
+    - a. Remember that if you have the same people doing the same things, you should expect the same results.記住，如果有同樣的人做同樣的事情，你應該期待同樣的結果。
   - 12.4 Use the following 「drill-down」 technique to gain an 80/20 understanding of a department or sub-department that is having problems.使用以下「深入挖掘」技術可以獲得對具有問題的部門或分部門的80/20理解。
-  - 12.5 Understand that diagnosis is foundational to both progress and quality relationships.了解診斷是進步和質量關係的基礎。
+  - 12.5 Understand that diagnosis is foundational to both progress and quality relationships.了解診斷是進步和高品質關係的基礎。
 - 13 Design Improvements to Your Machine to Get Around Your Problems　設計改進你的機器來解決你的問題
   - 13.1 Build your machine.建立機器。
   - 13.2 Systemize your principles and how they will be implemented.　系統化您的原則以及如何實施。
@@ -325,12 +324,12 @@
     - e. Don’t build the organization to fit the people.即不要建立組織來適應人民群眾。
     - f. Keep scale in mind.　牢記規模。
     - g. Organize departments and sub-departments around the most logical groupings based on 「gravitational pull.」
-    根據「引力拉動」，圍繞最合理的組織組織部門和分部門。
+      根據「引力拉動」，圍繞最合理的組織組織部門和分部門。
     - h. Make departments as self-sufficient as possible so that they have control over the resources they need to achieve their goals.　使部門盡可能自給自足，以控制他們實現目標所需的資源。
     - i. Ensure that the ratios of senior managers to junior managers and of junior managers to their reports are limited to preserve quality communication and mutual understanding.　確保高級管理人員與初級管理人員和初級管理人員對報告的比例有限，以保持質量溝通和相互了解。
     - j. Consider succession and training in your design.　考慮你的設計繼承和培訓。
     - k. Don’t just pay attention to your job; pay attention to how your job will be done if you are no longer around.
-    不要只注意你的工作;如果您不再在周圍，請注意如何完成工作。
+      不要只注意你的工作;如果您不再在周圍，請注意如何完成工作。
     - l. Use 「double-do」 rather than 「double-check」 to make sure mission-critical tasks are done correctly.　使用「雙重」而不是「仔細檢查」來確保任務關鍵任務正確完成。
     - m. Use consultants wisely and watch out for consultant addiction.明智地使用顧問，注意諮詢成癮。
   - 13.6 Create an organizational chart to look like a pyramid, with straight lines down that don’t cross.　創建一個組織圖，看起來像一個金字塔，直線向下不交叉。
@@ -348,23 +347,23 @@
     - b. Remember that there is no sense in having laws unless you have policemen (auditors).　請記住，除非有警察（審核員），否則有法律上沒有任何意義。
     - c. Beware of rubber-stamping.小心橡膠沖壓。
     - d. Recognize that people who make purchases on your behalf probably will not spend your money wisely.認知到代表您購物的人可能不會明智地花錢。
-    - e. Use 「public hangings」 to deter bad behavior.即用「公共吊墜」來遏制不良行為。
+    - e. Use 「public hangings」 to deter bad behavior.即用「公開吊首」來遏制不良行為。
   - 13.10 Have the clearest possible reporting lines and delineations of responsibilities.有最明確的報告路線和責任劃分。
     - a. Assign responsibilities based on workflow design and people’s abilities, not job titles.根據工作流程設計和人員能力分配責任，而不是職稱。
     - b. Constantly think about how to produce leverage.不斷思考如何產生槓桿。
     - c. Recognize that it is far better to find a few smart people and give them the best technology than to have a greater number of ordinary people who are less well equipped.　認知到找到一些聰明人，給他們最好的技術比擁有更多的普通人的裝備要好一些是好得多的。
     - d. Use leveragers.　使用槓桿
   - 13.11 Remember that almost everything will take more time and cost more money than you expect.　記住，幾乎所有的東西都將花費更多的時間和成本比你預期的更多的錢。
-- 14 Do What You Set Out to Do　你做什麼
+- 14 Do What You Set Out to Do 做該做的事
   - 14.1 Work for goals that you and your organization are excited about and think about how your tasks connect to those goals.　為您和您的組織感到興奮的目標努力，並考慮您的任務如何與這些目標相關聯。
     - a. Be coordinated and consistent in motivating others.　協調一致，激勵他人。
-    - b. Don’t act before thinking. Take the time to come up with a game plan.　思考之前不要行動花時間想出一個遊戲計劃。
+    - b. Don’t act before thinking. Take the time to come up with a game plan. 三思後行。花點時間想出一個策略。
     - c. Look for creative, cut-through solutions.　尋找創意，直觀的解決方案。
   - 14.2 Recognize that everyone has too much to do.　認知到每個人都有太多的事情要做。
     - a. Don’t get frustrated.　不要沮喪。
   - 14.3 Use checklists.使用清單。
     - a. Don’t confuse checklists with personal responsibility.不要將檢查單與個人責任混淆。
-  - 14.4 Allow time for rest and renovation. 休息和裝修時間。
+  - 14.4 Allow time for rest and renovation. 休息和整頓時間。
   - 14.5 Ring the bell. 敲鈴
 - 15 Use Tools and Protocols to Shape How Work Is Done 使用工具和協議來形成工作的完成
   - 15.1 Having systemized principles embedded in tools is especially valuable for an idea meritocracy. 將嵌入工具的系統化原則對於理想菁英主義特別有價值。
@@ -374,13 +373,12 @@
 - 16 And for Heaven’s Sake, Don’t Overlook Governance! 為了天堂的清酒，不要忽視治理！
   - 16.1 To be successful, all organizations must have checks and balances.要成功，所有組織都必須制衡。
     - a. Even in an idea meritocracy, merit cannot be the only determining factor in assigning responsibility and authority.即使在一個理想的菁英主義中，優點也不能成為分配責任和權力的唯一決定性因素。
-    - b. Make sure that no one is more powerful than the system or so important that they are irreplaceable.確保沒有人比系統更強大或更重要，因為它們是不可取代的。
-    - c. Beware of fiefdoms.小心點。
+    - b. Make sure that no one is more powerful than the system or so important that they are irreplaceable.確保沒有人比系統更強大或更重要、甚至是不可取代的。
+    - c. Beware of fiefdoms. 小心採邑制。
     - d. Make clear that the organization’s structure and rules are designed to ensure that its checks-and-balances system functions well.明確規定組織的結構和規則旨在確保其製衡系統運行良好。
-    - e. Make sure reporting lines are clear.
-    即確保報告行清晰。
+    - e. Make sure reporting lines are clear. 確保回報頻道清晰。
     - f. Make sure decision rights are clear. 確保決策權明確。
-    - g. Make sure that the people doing the assessing 1) have the time to be fully informed about how the person they are checking on is doing, 2) have the ability to make the assessments, and 3) are not in a conflict of interest that stands in the way of carrying out oversight effectively.確保執行評估的人員有時間充分了解他們正在檢查的人員在做什麼，2）有能力進行評估，3）不存在利益衝突在有效地進行監督的過程中。
-    - h. Recognize that decision makers must have access to the information necessary to make decisions and must be trustworthy enough to handle that information safely.認知到決策者必須獲得作出決定所必需的信息，並且必須足夠信任才能安全地處理這些信息。
-  - 16.2 Remember that in an idea meritocracy a single CEO is not as good as a great group of leaders. 記住，在一個想法中，單一的CEO不如一個偉大的領導者一樣好。
+    - g. Make sure that the people doing the assessing 1) have the time to be fully informed about how the person they are checking on is doing, 2) have the ability to make the assessments, and 3) are not in a conflict of interest that stands in the way of carrying out oversight effectively.確保執行評估的人員有時間充分了解他們正在檢查的人員在做什麼，2）有能力進行評估，3）有效地進行監督的過程中，不能存在利益衝突。
+    - h. Recognize that decision makers must have access to the information necessary to make decisions and must be trustworthy enough to handle that information safely.認知到決策者必須獲得作出決定所必需的信息，並且必須值得被信任才能安全地處理這些信息。
+  - 16.2 Remember that in an idea meritocracy a single CEO is not as good as a great group of leaders. 記住，一個理想中菁英主義者 - CEO，不如一個偉大的領導者一樣好。
   - 16.3 No governance system of principles, rules, and checks and balances can substitute for a great partnership.原則，規則和製衡方面的治理制度不能取代偉大的合作關係。
